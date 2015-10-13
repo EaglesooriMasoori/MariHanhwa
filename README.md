@@ -129,6 +129,7 @@
 - 7-9회: http://m.live.sports.media.daum.net/video/kbo/125859/126661
 
 ### 2015-05-22 [한화 9-5 kt] [H/L] '배영수 7.1이닝 3실점 호투' 한화, kt 꺾고 2연승
+- 움짤: http://gall.dcinside.com/board/view/?id=hanwhaeagles&no=6307657
 - 하이라이트: http://m.live.sports.media.daum.net/video/kbo/125861/126932
 - 1-3회: http://m.live.sports.media.daum.net/video/kbo/125861/127016
 - 4-6회: http://m.live.sports.media.daum.net/video/kbo/125861/127017
