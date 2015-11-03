@@ -429,9 +429,9 @@
 ### 2015-09-26 [넥센 3-13 한화] [H/L] '조인성 3타점 활약' 한화, 넥센에 10점 차 대승
 - 움짤: http://gall.dcinside.com/board/view/?id=hanwhaeagles&no=7828728
 - 하이라이트: http://m.live.sports.media.daum.net/video/kbo/161499/161587
-- 1-3회: http://m.live.sports.media.daum.net/video/kbo/160218/161381
-- 4-6회: http://m.live.sports.media.daum.net/video/kbo/160218/161387
-- 7-9회: http://m.live.sports.media.daum.net/video/kbo/160218/161384
+- 1-3회: http://m.live.sports.media.daum.net/video/kbo/161499/161601
+- 4-6회: http://m.live.sports.media.daum.net/video/kbo/161499/161600
+- 7-9회: http://m.live.sports.media.daum.net/video/kbo/161499/161599
 
 ### 2015-09-29 [삼성 6-7 한화] [H/L] '김용주 호투+폭스 연타석포' 한화, 삼성 꺾고 WC 희망 연결
 - 움짤: http://gall.dcinside.com/board/view/?id=hanwhaeagles&no=7848767
