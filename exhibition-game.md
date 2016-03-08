@@ -1,7 +1,7 @@
 # MariHanhwa
 - 마리한화, 승리의 기록 [2016년 시범경기]
 
-### 2015-03-08 [한화 4-2 넥센] '권용관 역전타' 한화, 넥센 꺾고 승리      
+### 2016-03-08 [한화 4-2 넥센] '권용관 역전타' 한화, 넥센 꺾고 승리      
 - 하이라이트: http://m.live.sports.media.daum.net/video/kbo/182630/182707      
 - 1-3회: http://m.live.sports.media.daum.net/video/kbo/182630/182714      
 - 4-6회: http://m.live.sports.media.daum.net/video/kbo/182630/182715      
