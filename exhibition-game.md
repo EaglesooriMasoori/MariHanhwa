@@ -6,35 +6,45 @@
 - 1-3회: http://m.live.sports.media.daum.net/video/kbo/182630/182714      
 - 4-6회: http://m.live.sports.media.daum.net/video/kbo/182630/182715      
 - 7-9회: http://m.live.sports.media.daum.net/video/kbo/182630/182718      
-- [라인업] 넥센 vs 한화, 3월 8일 경기      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182671
-- 넥센 vs 한화, 국민의례      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182664
-- [MVP] '기대주' 김용주가 선보인 희망투      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182720
-- [인터뷰] 김용주 '롤모델은 정우람 선수'      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182711
-- 윤석민 먼저 앞서나가는 1타점 희생플라이 / 1회초      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182668
-- '너무 과감했나?' 정근우 3루 도루 실패 / 1회말      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182673
-- 신성현, 박동원 잡는 맨손 호수비 / 2회초      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182677
-- 권용관 경기 뒤집는 역전 2타점 적시타 / 3회말      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182683
-- 윤석민 아쉬운 송구로 실점 허용 / 3회말      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182684
-- 김태균 멀찍이 달아나는 1타점 희생플라이 / 3회말      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182686
-- '미래의 에이스' 장민재 3K 삼자범퇴 / 4회초      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182690
-- 김범수 위기 넘기는 6-4-3 병살타 처리 / 6회초      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182695
-- 김범수 타자 처리하는 묘기와 같은 수비 / 7회초      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182698
-- '치고 달리고' 고종욱 2루 도루 성공 / 8회초      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182700
-- 김민성 뒤늦게 추격하는 1타점 적시타 / 8회초      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182702
-- 이재우 2K 잡는 위력적인 피칭 / 9회초      
-> http://m.live.sports.media.daum.net/video/kbo/182630/182709
+
+### 2016-03-09 [한화 3-1 넥센] '김재영 무실점 투구' 한화, 넥센 꺾고 2연승    
+- 하이라이트: http://m.live.sports.media.daum.net/video/kbo/182631/182873    
+- 1-3회: http://m.live.sports.media.daum.net/video/kbo/182631/182850    
+- 4-6회: http://m.live.sports.media.daum.net/video/kbo/182631/182853    
+- 7-9회: http://m.live.sports.media.daum.net/video/kbo/182631/182876    
+- [MVP] '5이닝 무실점' 김재영 신인답지 않은 위력투   
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182901    
+- [인터뷰] 김재영 '좋은 피칭은 선배님들 리드 덕'   
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182879    
+- 넥센 vs 한화, 국민의례   
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182798    
+- [라인업] 넥센 vs 한화, 3월 9일 경기   
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182806    
+- '훈련 성과' 허도환 정확한 송구로 도루 저지 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182803    
+- 이성열 먼저 앞서나가는 1타점 적시타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182814    
+- '센스만점' 신성현 주루플레이로 득점 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182818    
+- 하영민 폭투 틈타 추가 득점하는 이성열 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182821    
+- '놀라운 반사 신경' 김태균 이닝 끝내는 호수비 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182825    
+- 장영석 선행 주자 살려줄 뻔한 위험한 수비 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182833    
+- 좋은 중계플레이로 주자 잡는 넥센 수비진 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182830    
+- 김재영 위력적인 투구로 만루 위기 탈출 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182839    
+- 임병욱 빈틈 노린 과감한 도루 성공 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182845    
+- 넓은 수비 범위 보여주는 이용규 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182847    
+- 김경태 타자 압도하는 2K 삼자범퇴 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182854    
+- 허정협 어려운 타구 처리하는 다이빙캐치 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182861    
+- 김택형 3K 잡아내는 좋은 피칭 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182869    
+- 심수창 한 점 내주며 경기 마무리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/182631/182874
