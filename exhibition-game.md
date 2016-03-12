@@ -18,43 +18,43 @@
 - 1-3회: http://m.live.sports.media.daum.net/video/kbo/182636/183059
 - 4-6회: http://m.live.sports.media.daum.net/video/kbo/182636/183070
 - 7-9회: http://m.live.sports.media.daum.net/video/kbo/182636/183091
-- [MVP] '니퍼트 침몰시킨 투런 홈런' 이성열    
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183110
-- 두산 vs 한화, 국민의례                
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183011
-- [라인업] 두산 vs 한화, 3월 10일 경기     
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183014
-- '작년과 다르다' 송은범 기분 좋은 1K 삼자범퇴 / 1회초
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183015
-- 김태균 바람의 도움받는 행운의 1타점 / 1회말    
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183019
-- 국해성 몸을 아끼지 않는 호수비 / 2회말       
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183021
-- 수비 허점 노린 땅볼로 동점 만드는 정수빈 / 3회초 
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183026
-- 이용규 기회 놓치지 않는 2타점 적시 2루타 / 3회말
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183030
-- '오늘은 운수가 좋아' 김태균 1타점 추가 적시타 / 3회말
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183034
-- '굿바이 니퍼트' 이성열 멀리 달아나는 투런포 / 3회말
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183035
-- '오늘 벌써 3안타' 정근우 타점 추가하는 3루타 / 4회말
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183039
-- 최진행 호쾌한 타격음이 함께한 투런 홈런 / 4회말  
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183048
-- 허도환 두 자릿수 득점 만드는 1타점 적시타 / 5회말
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183055
-- 국해성 수비 실수 속죄하는 싹쓸이 3타점 2루타 / 6회초
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183063
-- '다시 돌아온 한화' 송신영 2K 삼자범퇴 / 7회초 
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183074
-- '임팩트 있는 주루플레이' 강상원 센스로 만든 득점 / 7회말
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183077
-- 최주환 추격 시작하는 1타점 2루타 / 8회초     
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183080
-- '속죄는 끝나지 않았다' 국해성 투런 홈런 / 8회초 
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183082
-- 공격적인 주루로 득점과 아웃을 동시에 얻는 한화 / 8회말
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183084
-- 박정진 경기 마무리하는 2K 삼자범퇴 / 9회초    
-  - http://m.live.sports.media.daum.net/video/kbo/182636/183089
+
+### 2016-03-12 [한화 5-3 삼성] '정우람 데뷔전' 한화, 삼성 상대로 2점차 승리
+- 하이라이트: http://m.live.sports.media.daum.net/video/kbo/182656/183402
+- 1-3회: http://m.live.sports.media.daum.net/video/kbo/182656/183361
+- 4-6회: http://m.live.sports.media.daum.net/video/kbo/182656/183380
+- 7-9회: http://m.live.sports.media.daum.net/video/kbo/182656/183399
+- [MVP] 조인성 '경기를 지배하는 불혹의 포수'     
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183409
+- [인터뷰] '목표를 크게 잡았습니다' 조인성        
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183407
+- [라인업] 삼성 vs 한화, 3월 12일 경기       
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183315
+- 이성열 더블플레이 만드는 완벽한 1루 수비 / 1회초   
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183314
+- 이용규 프로의 냉혹함 알려주는 3루타 / 1회말      
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183316
+- 기회 살리며 선취 3득점 따내는 한화 타선 / 1회말   
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183321
+- 박해민 추격 시작하는 솔로 홈런 / 3회초         
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183329
+- 아쉬운 파울 타구 처리 보여준 주현상 / 3회초      
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183330
+- 2루타 후 홈에서 아웃당하는 권용관 / 3회말       
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183336
+- 조인성 다시 분위기 가져오는 투런 홈런 / 3회말     
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183338
+- 완벽하게 파울 타구 낚아채는 관중 / 4회초        
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183340
+- '발야구' 주루플레이로 1점 따내는 구자욱 / 4회초   
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183345
+- 발디리스 본인은 아쉬워하는 1타점 적시타 / 5회초    
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183354
+- 구자욱, 임현준 돕는 파울 타구 캐치 / 6회말      
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183369
+- 벌써 시즌이 시작된 듯한 분위기의 대전구장 / 7회말   
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183378
+- 김현우 이닝 틀어막는 1K 삼자범퇴 / 8회말       
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183386
+- 흔들리지 않고 경기 마무리하는 정우람 / 9회초      
+  - http://m.live.sports.media.daum.net/video/kbo/182656/183391
