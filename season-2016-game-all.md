@@ -6,6 +6,7 @@
 - 1-3회: http://m.live.sports.media.daum.net/video/kbo/187366/187626
 - 4-6회: http://m.live.sports.media.daum.net/video/kbo/187366/187627
 - 7-9회: http://m.live.sports.media.daum.net/video/kbo/187366/187631
+- 풀영상: http://m.sports.naver.com/video.nhn?id=184507
 - [라인업] 넥센 vs 한화, 4월 5일
   - http://m.live.sports.media.daum.net/video/kbo/187366/187468
 - '답답하진 않아요' 구대성 인터뷰

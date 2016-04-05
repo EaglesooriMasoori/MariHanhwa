@@ -6,4 +6,4 @@
 - 1-3회: http://m.live.sports.media.daum.net/video/kbo/187366/187626
 - 4-6회: http://m.live.sports.media.daum.net/video/kbo/187366/187627
 - 7-9회: http://m.live.sports.media.daum.net/video/kbo/187366/187631
-- Full: Not yet
+- Full: http://m.sports.naver.com/video.nhn?id=184507
