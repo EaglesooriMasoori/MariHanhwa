@@ -82,3 +82,119 @@
   - http://m.live.sports.media.daum.net/video/kbo/187421/189145
 - '나이스 캐치' 뒷좌석 배려하는 어린이 관중의 호수비
   - http://m.live.sports.media.daum.net/video/kbo/187421/189020
+
+### 2016-04-21 [한화 9-5 롯데] '간절했던 승리' 한화, 롯데 꺾고 7연패 탈출
+- 하이라이트: http://m.live.sports.media.daum.net/video/kbo/191152/192528
+- 1-3회: http://m.live.sports.media.daum.net/video/kbo/191152/192529
+- 4-6회: http://m.live.sports.media.daum.net/video/kbo/191152/192530
+- 7-9회: http://m.live.sports.media.daum.net/video/kbo/191152/192531
+- Full: http://m.sports.naver.com/video.nhn?id=187183
+- [MVP] 한화의 4번타자 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192533
+- [인터뷰] 김태균 개인통산 800득점 달성
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192532
+- 이양호 농촌진흥청장 시구-박대조씨 시타
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192376
+- [라인업] 한화 vs 롯데, 4월 21일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192387
+- 적시타로 초반 기선제압에 성공하는 김태균 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192383
+- 좋은 기회 살리지 못하는 한화 타선 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192386
+- 김민우 뼈아픈 실책에 이은 아두치의 적시타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192395
+- 황재균 달아나기 시작하는 1타점 적시타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192400
+- 밀어내기로 한 점 더 내어주는 송창식 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192409
+- 문규현 한 점 추가하는 희생플라이 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192412
+- '아직 꺼지지 않은 불씨' 이용규 1타점 적시타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192425
+- '4-5-6' 강타선 상대로 삼진쇼 펼치는 박세웅 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192440
+- 하주석 1점차로 따라붙는 2타점 적시타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192460
+- 박세웅 찰나의 틈 노린 견제구 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192462
+- '대타' 이성열 역전 2타점 2루타 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192475
+- '뒤바뀐 상황' 차일목 달아나는 희생플라이 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192478
+- 강민호 길었던 이닝 끝내는 도루저지 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192481
+- 김경언 적당한 타이밍에서 나온 좋은 수비 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192486
+- 한화 타선, 삼진-도루 실패로 다시 기회 무산 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192497
+- 권혁 구원 등판한 이닝에 1K 삼자범퇴 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192508
+- '한 발짝이 아쉬워' 황재균 스스로 아쉬움이 남는 상황 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192510
+- '이번엔 좋았어' 황재균 기막힌 강습타구 처리 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192511
+- 하주석 물 흐르듯 자연스러운 수비 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192519
+- '그쪽이 아닌데' 김대륙 아쉬운 송구 실책 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192520
+- 황재균 다시 찾아온 더블아웃 찬스 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192521
+- 차일목 격차 벌리는 2타점 적시타 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192522
+- 정우람 7연패 끊어내는 세이브 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/191152/192527
+
+### 2016-04-26 [한화 4-2 기아] '마에스트리 2승' 한화, KIA 꺾고 3연패 탈출
+- 하이라이트: http://m.live.sports.media.daum.net/video/kbo/193588/194205
+- 1-3회: http://m.live.sports.media.daum.net/video/kbo/193588/194103
+- 4-6회: http://m.live.sports.media.daum.net/video/kbo/193588/194137
+- 7-9회: http://m.live.sports.media.daum.net/video/kbo/193588/194200
+- Full: http://m.sports.naver.com/video.nhn?id=188165
+- [MVP] '6이닝 무실점' 이전 경기 부진 씻는 마에스트리
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194210
+- '타율 5할' 박신영 아나운서의 노수광 선수 소개
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194044
+- [라인업] KIA vs 한화, 4월 26일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194055
+- 김태균, 노수광 아슬아슬한 1루 승부 그 결과는? / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194049
+- '차단문' 차일목, 김주찬 저격하는 좋은 송구 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194054
+- '서중사' 서동욱, 양현종 도와주는 엄청난 호수비 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194060
+- 더블플레이로 순식간에 이닝 종료시킨 최진행 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194070
+- '247일 만에 홈런' 김태균, 양현종 상대로 마수걸이 솔로포 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194068
+- '보기 힘든 장면' 양현종 3루 견제, 그 결과는? / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194074
+- 1사 2-3루 상황, 위기관리 능력 돋보인 양현종 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194080
+- 마에스트리 강력한 구위로 스스로 위기 탈출 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194096
+- 최진행 파워가 돋보인 2타점 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194101
+- '수비도 갓!' 김경언, 마에스트리 돕는 환상 캐치 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194110
+- 마에스트리 상대 타선 압도하는 1K 삼자범퇴 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194113
+- '수비 걱정 마세요' 김주형 침착한 호수비 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194122
+- 마에스트리, 김성근 감독 눈도장 받는 삼자범퇴 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194128
+- '베이스 밟았나요?' 한화의 합의 판정, 그 결과는? / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194148
+- 2사 1-2루 상황, 나지완-윤규진 대결 그 승자는? / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194154
+- '부상 우려' 김태균 손 울림 증상으로 교체 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194174
+- '개인 통산 500타점' 김주찬 1타점 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194181
+- '잡기는 잘 잡았는데..' 하주석 아쉬운 송구로 1점 허용 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194183
+- '폭풍 질주' 정근우 팀 득점 안기는 주루플레이 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194191
+- 2타자 연속 삼진으로 세이브 챙기는 정우람 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/193588/194202
+
+
