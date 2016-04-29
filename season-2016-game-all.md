@@ -2,11 +2,11 @@
 - 마리한화, 승리의 기록 [2016년 시즌]
 
 ### 2016-04-05 [한화 9-5 넥센] '6회 6득점 역전극' 한화, 넥센 꺾고 시즌 첫 승
-- 하이라이트: http://m.live.sports.media.daum.net/video/kbo/187366/187620
-- 1-3회: http://m.live.sports.media.daum.net/video/kbo/187366/187626
-- 4-6회: http://m.live.sports.media.daum.net/video/kbo/187366/187627
-- 7-9회: http://m.live.sports.media.daum.net/video/kbo/187366/187631
-- 풀영상: http://m.sports.naver.com/video.nhn?id=184507
+- H/L: http://m.live.sports.media.daum.net/video/kbo/187366/187620
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/187366/187626
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/187366/187627
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/187366/187631
+- Full: http://m.sports.naver.com/video.nhn?id=184507
 - [라인업] 넥센 vs 한화, 4월 5일
   - http://m.live.sports.media.daum.net/video/kbo/187366/187468
 - '답답하진 않아요' 구대성 인터뷰
@@ -49,10 +49,10 @@
   - http://m.live.sports.media.daum.net/video/kbo/187366/187619
 
 ### 2016-04-10 [한화 2-1 NC] '소중한 승리' 한화, NC 꺾고 4연패 탈출
-- 하이라이트: http://m.live.sports.media.daum.net/video/kbo/187421/189149
-- 1-3회: http://m.live.sports.media.daum.net/video/kbo/187421/189042
-- 4-6회: http://m.live.sports.media.daum.net/video/kbo/187421/189094
-- 7-9회: http://m.live.sports.media.daum.net/video/kbo/187421/189158
+- H/L: http://m.live.sports.media.daum.net/video/kbo/187421/189149
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/187421/189042
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/187421/189094
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/187421/189158
 - Full: http://m.sports.naver.com/video.nhn?id=185430
 - [MVP] '승리의 주역' 6이닝 1실점 마에스트리
   - http://m.live.sports.media.daum.net/video/kbo/187421/189187
@@ -84,10 +84,10 @@
   - http://m.live.sports.media.daum.net/video/kbo/187421/189020
 
 ### 2016-04-21 [한화 9-5 롯데] '간절했던 승리' 한화, 롯데 꺾고 7연패 탈출
-- 하이라이트: http://m.live.sports.media.daum.net/video/kbo/191152/192528
-- 1-3회: http://m.live.sports.media.daum.net/video/kbo/191152/192529
-- 4-6회: http://m.live.sports.media.daum.net/video/kbo/191152/192530
-- 7-9회: http://m.live.sports.media.daum.net/video/kbo/191152/192531
+- H/L: http://m.live.sports.media.daum.net/video/kbo/191152/192528
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/191152/192529
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/191152/192530
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/191152/192531
 - Full: http://m.sports.naver.com/video.nhn?id=187183
 - [MVP] 한화의 4번타자 김태균
   - http://m.live.sports.media.daum.net/video/kbo/191152/192533
@@ -145,10 +145,10 @@
   - http://m.live.sports.media.daum.net/video/kbo/191152/192527
 
 ### 2016-04-26 [한화 4-2 기아] '마에스트리 2승' 한화, KIA 꺾고 3연패 탈출
-- 하이라이트: http://m.live.sports.media.daum.net/video/kbo/193588/194205
-- 1-3회: http://m.live.sports.media.daum.net/video/kbo/193588/194103
-- 4-6회: http://m.live.sports.media.daum.net/video/kbo/193588/194137
-- 7-9회: http://m.live.sports.media.daum.net/video/kbo/193588/194200
+- H/L: http://m.live.sports.media.daum.net/video/kbo/193588/194205
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/193588/194103
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/193588/194137
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/193588/194200
 - Full: http://m.sports.naver.com/video.nhn?id=188165
 - [MVP] '6이닝 무실점' 이전 경기 부진 씻는 마에스트리
   - http://m.live.sports.media.daum.net/video/kbo/193588/194210
@@ -197,4 +197,49 @@
 - 2타자 연속 삼진으로 세이브 챙기는 정우람 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/193588/194202
 
+### 2016-04-28 [한화 3-2 기아] '정근우, 연장 끝내기 안타' 한화, KIA 잡고 시즌 첫 2연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/193600/194664
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/193600/194524
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/193600/194575
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/193600/194613
+- 10~11: http://m.live.sports.media.daum.net/video/kbo/193600/194674
+- Full: http://m.sports.naver.com/video.nhn?id=188396
+- [MVP] '끝내기 안타' 2연승의 주역 정근우
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194675
+- [라인업] KIA vs 한화, 4월 28일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194502
+- 신종길 합의 판정 끝에 도루 실패 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194496
+- 이범호 선취점 가져가는 투런 홈런 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194509
+- 김주찬 공을 따라가다 보니 여긴 어디?? / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194520
+- 헥터 위기를 막아내는 위력적인 구위 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194528
+- '조던 보는 듯' 노수광 기가 막힌 캐치 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194535
+- 신성현 기습번트를 대처하는 알파고급 판단 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194541
+- '경기는 원점' 김태균-송광민 2득점 합작 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194568
+- 송광민 아쉬운 포구로 김성근 감독을 들었다 놨다 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194592
+- 신종길의 베이스러닝이 맘에 들지 않는 김기태 감독 / 10회초
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194621
+- 권혁 무너지지 않는 철옹성 같은 마운드 / 10회초
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194627
+- 역전의 발판 마련하는 한화 타선과 더그아웃 / 11회말
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194665
+- 정근우 마침표를 찍는 끝내기 적시타 / 11회말
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194652
+- 경기 시작 전 카이스트 합창단의 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194489
+- '김성근 감독 사퇴하세요' 피켓 시위, 도 넘은 팬심
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194505
+- '닮았나요??' 헥터, 김주찬 닮은 두 사람
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194547
+- 어려움을 함께 했었던 양 팀 감독
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194558
+- '로사리오가 가방 메고 갈 준비??' 객석에 나타난 닮은 꼴 관중
+  - http://m.live.sports.media.daum.net/video/kbo/193600/194639
 
