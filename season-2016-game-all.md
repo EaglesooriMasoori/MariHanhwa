@@ -243,3 +243,55 @@
 - '로사리오가 가방 메고 갈 준비??' 객석에 나타난 닮은 꼴 관중
   - http://m.live.sports.media.daum.net/video/kbo/193600/194639
 
+### 2016-05-01 [한화 9-8 삼성] '허도환 역전 결승타' 한화, 삼성 꺾고 2연속 위닝 시리즈
+- H/L: http://m.live.sports.media.daum.net/video/kbo/193622/195827
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/193622/195725
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/193622/195771
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/193622/195834
+- Full: http://m.sports.naver.com/video.nhn?id=189016
+- [MVP] '필요할 때 해내는 사나이' 2안타 3타점 허도환
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195833
+- [라인업] 삼성 vs 한화, 5월 1일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195688
+- 한화 이글스 키즈클럽 어린이들의 귀여운 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195611
+- '올라오는 타격감' 박해민 1타점 적시 3루타 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195636
+- 구자욱 한 점 더 보태는 1타점 희생 플라이 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195648
+- '가족의 힘' 이용규 추격의 1타점 적시타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195670
+- 김태균 경기 원점 만드는 1타점 희생플라이 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195680
+- 최진행 행운이 따르는 1타점 내야 안타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195681
+- 로사리오 간결한 스윙으로 만든 투런 홈런 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195687
+- 웹스터 세 타자 깔끔히 막는 1K 삼자범퇴 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195696
+- 4연속 볼넷 밀어내기 후 강판되는 마에스트리 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195703
+- 하주석 1실점만 허락하는 좋은 플레이 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195710
+- 발디리스 클래스가 느껴지는 맨손 캐치 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195719
+- 차일목, 박해민 움직임 파악하는 센스 플레이 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195757
+- '대타 성공' 백상원 동점 만드는 1타점 적시타 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195730
+- 이지영-김재현 점수 차 벌리는 3타점 합작 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195736
+- '쟤 바꿔' 좋지 못한 수비력, 교체되는 하주석 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195745
+- 로사리오 한 점 따라가는 1타점 희생플라이 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195762
+- 허도환 턱 밑까지 추격하는 1타점 적시 2루타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195765
+- '승부 카드' 남은 이닝 책임 맡게 된 정우람 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195788
+- 로사리오 합의 판정 끝에 얻어낸 아웃카운트 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195792
+- 정우람 이닝 요리하는 2K 삼자범퇴 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195803
+- '로사리오 거르고' 허도환 상대 낙담케 하는 역전 2타점 적시타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/193622/195811

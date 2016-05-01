@@ -35,3 +35,10 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/193600/194575
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/193600/194613
 - 10~11: http://m.live.sports.media.daum.net/video/kbo/193600/194674
+
+### 2016-05-01 [한화 9-8 삼성] '허도환 역전 결승타' 한화, 삼성 꺾고 2연속 위닝 시리즈
+- H/L: http://m.live.sports.media.daum.net/video/kbo/193622/195827
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/193622/195725
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/193622/195771
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/193622/195834
+- Full: http://m.sports.naver.com/video.nhn?id=189016
