@@ -35,6 +35,14 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/193600/194575
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/193600/194613
 - 10~11: http://m.live.sports.media.daum.net/video/kbo/193600/194674
+- Full: http://m.sports.naver.com/video.nhn?id=188396
+
+### 2016-04-29 [한화 10-5 삼성] '정근우 연이틀 폭발' 한화, 삼성에 짜릿한 역전승-3연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/193605/194981
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/193605/194881
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/193605/194915
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/193605/194973
+- Full: http://m.sports.naver.com/video.nhn?id=188577
 
 ### 2016-05-01 [한화 9-8 삼성] '허도환 역전 결승타' 한화, 삼성 꺾고 2연속 위닝 시리즈
 - H/L: http://m.live.sports.media.daum.net/video/kbo/193622/195827
@@ -42,3 +50,16 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/193622/195771
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/193622/195834
 - Full: http://m.sports.naver.com/video.nhn?id=189016
+
+### 2016-05-03 [한화 7-2 SK] '로사리오 쐐기 만루 홈런' 한화, SK 꺾고 2연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/195623/196421
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/195623/196355
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/195623/196401
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/195623/196422
+- Full: http://m.sports.naver.com/video.nhn?id=189252
+
+### 2016-05-11 [한화 6-5 NC] '로사리오 3안타' 한화, NC 꺾고 5연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/198127/198955
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/198127/198898
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/198127/198912
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/198127/198953
