@@ -63,3 +63,11 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/198127/198898
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/198127/198912
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/198127/198953
+- Full: http://m.sports.naver.com/video.nhn?id=190782
+
+### 2016-05-19 [한화 9-6 삼성] '로저스 첫 승' 한화, 삼성 꺾고 6연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/200119/201319
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/200119/201223
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/200119/201277
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/200119/201316
+- Full: http://m.sports.naver.com/video.nhn?id=192116

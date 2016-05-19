@@ -407,7 +407,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/198127/198898
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/198127/198912
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/198127/198953
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=190782
 - [MVP] 로사리오, 5월 존재를 드러내다
   - http://m.live.sports.media.daum.net/video/kbo/198127/198957
 - [라인업] NC vs 한화, 5월 11일 경기
@@ -450,3 +450,51 @@
   - http://m.live.sports.media.daum.net/video/kbo/198127/198892
 - 타이어뱅크 김용범 부사장, 김하연 사원 시구 및 시타
   - http://m.live.sports.media.daum.net/video/kbo/198127/198790
+
+### 2016-05-19 [한화 9-6 삼성] '로저스 첫 승' 한화, 삼성 꺾고 6연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/200119/201319
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/200119/201223
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/200119/201277
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/200119/201316
+- Full: http://m.sports.naver.com/video.nhn?id=192116
+- [MVP] '주장의 품격' 공·수·주 완벽 활약한 정근우
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201327
+- [라인업] 한화 vs 삼성, 5월 19일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201176
+- 정근우 주장의 품격 보여주는 솔로 홈런 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201167
+- 장민석 까다로운 타구 잡는 호수비 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201181
+- 김재현 균형 맞추는 1타점 적시타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201185
+- 구자욱 점수 차 벌리는 투런포 작렬 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201203
+- '홈런엔 홈런으로' 하주석 역전의 스리런 홈런 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201212
+- '오늘은 다르다' 이용규 2타점 적시 3루타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201217
+- 백상원 1타점 희생타, 이승엽 아쉬운 주루사 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201239
+- 조인성 추격 의지 꺾는 솔로 홈런 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201244
+- '역대 7번째' 정근우 11년 연속 10도루 성공 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201251
+- 송광민 행운이 따라주는 1타점 내야 안타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201260
+- '날아올라' 정근우, 로저스 감탄케 한 호수비 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201267
+- 백정현 위력적인 구위로 세 타자 솎아내는 KKK / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201273
+- 이승엽 삼진, 최형우 런다운 중 구자욱 득점 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201290
+- 로사리오 바뀐 투수 상대로 솔로 홈런 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201296
+- 이흥련 집중력이 돋보인 뜬공 처리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201303
+- 이영욱 호쾌한 스윙으로 만든 솔로 홈런 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201306
+- 양성우 도움받아 경기 종료하는 정우람 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201312
+- '흥에 겨운 나머지..' 경기장에 난입한 관중
+  - http://m.live.sports.media.daum.net/video/kbo/200119/201281
+
