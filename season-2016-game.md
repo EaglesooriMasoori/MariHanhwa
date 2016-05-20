@@ -71,3 +71,10 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/200119/201277
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/200119/201316
 - Full: http://m.sports.naver.com/video.nhn?id=192116
+
+### 2016-05-20 [한화 11-2 KT] '송은범 첫 승-로사리오 연타석포' 한화, kt 완파하고 2연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/200125/201551
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/200125/201454
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/200125/201528
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/200125/201549
+- Full: http://m.sports.naver.com/video.nhn?id=192316

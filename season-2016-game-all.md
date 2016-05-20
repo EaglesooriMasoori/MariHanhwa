@@ -498,3 +498,61 @@
 - '흥에 겨운 나머지..' 경기장에 난입한 관중
   - http://m.live.sports.media.daum.net/video/kbo/200119/201281
 
+### 2016-05-20 [한화 11-2 KT] '송은범 첫 승-로사리오 연타석포' 한화, kt 완파하고 2연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/200125/201551
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/200125/201454
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/200125/201528
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/200125/201549
+- Full: http://m.sports.naver.com/video.nhn?id=192316
+- [MVP] '한화 토종 첫 QS-선발 승' 297일 만에 승리 송은범
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201571
+- [인터뷰] 김성근 '1군은 육성하는 곳이 아닌 싸우는 곳'
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201407
+- '감독님 불러만 주세요' 대타로 나갈 기세, 로저스
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201427
+- '우리 친..친해요' 서로 때리고 맞고, 로저스-하주석
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201469
+- [라인업] kt vs 한화, 5월 20일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201416
+- 경기 시작 5분 만에 애매한 합의판정 상황 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201412
+- 하주석 좌중간 가르는 선제 1타점 3루타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201435
+- '야신의 한 수' 차일목 상대 허를 찌르는 스퀴즈 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201437
+- 송광민 빠른 타자 이대형 잡아낸 좋은 수비 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201442
+- 장민석 레이저 송구, 뭔가 억울한 듯한 오정복 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201445
+- '포수 미트질 못 보셨어요?' 어필하는 정근우 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201448
+- 바깥쪽, 몸쪽 볼 판정에 아쉬워하는 송은범 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201459
+- 장민석 총알 같은 타구로 추가 1타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201466
+- 정근우 앞선 억울함 씻어내는 1타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201468
+- 이용규 적시타-장민석 홈인, 그리고 정근우는? / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201476
+- '나의 5월은 뜨겁다' 로사리오 시즌 8호 솔로포 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201484
+- 양성우, 엄상백 강판 시키는 1타점 적시타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201487
+- 상대 투수 밀어내기-장민석 땅볼로 추가 2득점 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201492
+- 마르테 기나긴 이닝 종지부 찍는 호수비 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201497
+- '범가너도 부럽지 않아' 송은범 완벽 피칭 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201501
+- '맞아도 좋아' 로사리오 연타석 홈런 작렬 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201508
+- '이닝 마무리 하고 싶었는데' 강판 되는 송은범 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201512
+- 송광민 실책성 수비 이후 전민수 1타점 2루타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201518
+- 강경학 수비로써 보여주는 그의 존재감 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201523
+- 하주석 캐치 후 빙글 돌아 아름다운 송구까지 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201536
+- 하준호 유종의 미 거두는 1타점 내야 땅볼 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/200125/201545
