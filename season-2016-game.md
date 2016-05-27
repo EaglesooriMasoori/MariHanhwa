@@ -78,3 +78,17 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/200125/201528
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/200125/201549
 - Full: http://m.sports.naver.com/video.nhn?id=192316
+
+### 2016-05-26 [한화 7-6 넥센] '8회초 역전극' 한화, 넥센 꺾고 3연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/202190/203226
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/202190/203086
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/202190/203155
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/202190/203229
+- Full: http://m.sports.naver.com/video.nhn?id=193384
+
+### 2016-05-27 [한화 11-7 롯데] '16안타 폭발' 한화, 롯데 꺾고 2연승 성공
+- H/L: http://m.live.sports.media.daum.net/video/kbo/202198/203532
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/202198/203447
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/202198/203497
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/202198/203537
+- Full: 

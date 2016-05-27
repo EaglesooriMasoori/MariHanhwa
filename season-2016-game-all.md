@@ -556,3 +556,130 @@
   - http://m.live.sports.media.daum.net/video/kbo/200125/201536
 - 하준호 유종의 미 거두는 1타점 내야 땅볼 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/200125/201545
+
+### 2016-05-26 [한화 7-6 넥센] '8회초 역전극' 한화, 넥센 꺾고 3연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/202190/203226
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/202190/203086
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/202190/203155
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/202190/203229
+- Full: http://m.sports.naver.com/video.nhn?id=193384
+- [MVP] '결정적인 순간, 결정적인 타점' 4번타자 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203236
+- [인터뷰] 김세현 '만성 골수성 백혈병 어느 정도 회복?'
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203049
+- '안녕하세요 JJCC 입니다' 에디 시구-산청 시타
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203051
+- '플래시 터트리시면 안돼요' 주의 주는 권영철 구심
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203091
+- [라인업] 한화 vs 넥센, 5월 26일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203063
+- 박동원, 이용규 잡아낸 정확한 2루 송구 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203054
+- 김하성, 병살 이끌어 낸 완벽한 백핸드 토스 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203067
+- '감독님 합의판정 요청 좀 해주세요' 양성우 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203073
+- '다행이다' 평범한 플라이 놓칠 뻔한 송주호 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203077
+- 권영철 구심, 배트에 얼굴 맞는 아찔한 상황 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203081
+- 맨손 캐치 후 원바운드 송구 이겨낸 송광민의 발 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203097
+- 무사 2루 찬스 놓치는 한화 중심 타선 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203103
+- 김민성 좌익수 키 넘기는 선제 1타점 2루타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203113
+- '혹시나 사인 훔칠까봐 왔다 갔다' 포수 차일목 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203117
+- '빠던은 했는데..' 박동원 밀어서 2타점 2루타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203121
+- '하위 타선의 힘' 김하성 추가 1타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203123
+- '발레리노?' 김하성 예술적인 점프 캐치 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203137
+- 박주현, 김태균 타구 어깨 맞고 불의의 교체 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203167
+- 양성우 바뀐 투수 이보근 상대로 2타점 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203141
+- 만루에서 만난 이보근-이종환의 벼랑 끝 승부 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203148
+- 득점권 찬스에서 바뀐 투수 초구 노린 로사리오 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203161
+- '3루에서 아웃' 김민성 침착한 번트 수비 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203180
+- '오늘도 1점 승부' 정근우 추격의 1타점 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203181
+- 채태인, 의욕만 앞섰던 수비가 불러온 비극 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203187
+- 멘탈마저 무너진 김세현, 폭투로 추가 실점 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203189
+- 김태균 정말 필요할 때 터진 1타점 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203196
+- '내가 잡았어' 송광민 까다로운 타구 잡는 수비 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203200
+- '구장은 넓고 펜스도 높고' 김민성 2타점 3루타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203211
+- 정우람, 박동원 상대로 삼진 잡아내며 위기 탈출 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203212
+- '나는 불꽃이다' 정우람 연투 속 혼신의 마무리 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/202190/203224
+
+### 2016-05-27 [한화 11-7 롯데] '16안타 폭발' 한화, 롯데 꺾고 2연승 성공
+- H/L: http://m.live.sports.media.daum.net/video/kbo/202198/203532
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/202198/203447
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/202198/203497
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/202198/203537
+- Full: 
+- [MVP] '5출루+도루' 상대 입장에서 정말 얄미운 이용규
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203536
+- [인터뷰] '오늘의 수훈갑' 언제나 비장한 이용규
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203533
+- [인터뷰] 정훈 '어제 결승 타점, 비결은?'
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203362
+- [라인업] 롯데 vs 한화, 5월 27일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203448
+- 공 1개로 한꺼번에 2아웃 만드는 윤규진-차일목 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203368
+- 김태균, 4번 타자임을 증명하는 2타점 2루타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203383
+- '요즘 hot한 남자' 양성우 추가 1타점 2루타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203387
+- 하주석 '나는 행복합니다' 소환 시킨 적시타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203388
+- '13개 중 12개가 볼' 윤규진 3연속 볼넷, 밀어내기 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203403
+- 정훈, 손아섭 희생플라이 때 2루 노리다가 아웃 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203405
+- '참을 인 인 인!' 밀어내기 볼넷 얻어낸 로사리오 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203415
+- '요즘 정말 hot한 남자' 양성우 2타점 적시타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203418
+- '스윗한 수위 타자' 김문호 1타점 적시타 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203423
+- 황재균 미국까지 날아갈듯한 장외 스리런포 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203428
+- '오늘 삼진만 3개' 결국 교체 당하는 송광민 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203443
+- 홍성민 타격전에 찬물 끼얹는 2K 삼자범퇴 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203456
+- 정근우와 아찔한 충돌 이후 사과하는 김문호 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203463
+- 모두가 놀란 차일목 머리 쪽을 향한 투구 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203464
+- 김문호, 정근우 당황하게 만든 외야 점프 캐치 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203470
+- 하주석, 문규현 글러브 스치는 1타점 적시타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203491
+- 손목에 공 맞고 고통 호소 하는 강민호 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203494
+- '아뿔싸' 권혁 침착하지 못했던 송구 실책 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203502
+- 최준석 바짝 추격하는 1타점 희생플라이 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203508
+- 김태균 거르고 로사리오, 이 선택의 결말은? / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203516
+- '최! 강! 한! 화!' 정근우 쐐기 1타점 적시타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203520
+- '감독님의 힘?' 병살로 경기 마무리 짓는 권혁 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/202198/203527
+
