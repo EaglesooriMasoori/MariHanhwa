@@ -91,4 +91,11 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/202198/203447
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/202198/203497
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/202198/203537
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=193662
+
+### 2016-05-28 [한화 9-6 롯데] '타선 폭발' 한화, 롯데 꺾고 쾌조의 3연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/202205/203872
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/202205/203778
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/202205/203837
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/202205/203877
+- Full: http://m.sports.naver.com/video.nhn?id=193985

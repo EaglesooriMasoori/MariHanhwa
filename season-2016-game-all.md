@@ -629,7 +629,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/202198/203447
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/202198/203497
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/202198/203537
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=193662
 - [MVP] '5출루+도루' 상대 입장에서 정말 얄미운 이용규
   - http://m.live.sports.media.daum.net/video/kbo/202198/203536
 - [인터뷰] '오늘의 수훈갑' 언제나 비장한 이용규
@@ -683,3 +683,61 @@
 - '감독님의 힘?' 병살로 경기 마무리 짓는 권혁 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/202198/203527
 
+### 2016-05-28 [한화 9-6 롯데] '타선 폭발' 한화, 롯데 꺾고 쾌조의 3연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/202205/203872
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/202205/203778
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/202205/203837
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/202205/203877
+- Full: http://m.sports.naver.com/video.nhn?id=193985
+- [MVP] '어느샌가 이글스의 심장이 되어버린 남자' 정근우
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203886
+- [인터뷰] '체력, 타이밍, 투구폼, 염종석, 팀' 심수창
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203876
+- [인터뷰] 권혁 '투구수 늘어나도 구속 유지하는 비결?'
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203688
+- [라인업] 롯데 vs 한화, 5월 28일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203698
+- 차일목 2경기 연속 손아섭 잡아내는 2루 송구 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203695
+- 김상호 만루에서 외야 깊숙한 선취 희생플라이 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203715
+- '이 선수는 못하는게 뭘까' 김문호 번트 안타 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203753
+- 송구 실책과 주루 미스가 공존한 혼돈의 카오스 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203738
+- '막긴 잘 막았는데' 정훈 의도치 않은 수건돌리기 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203750
+- 김태균 한 방에 주자 모두 쓸어 담는 싹쓸이 2루타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203761
+- '주루 코치의 수비방해?' 심판진도 난감한 상황 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203771
+- '호호 브라더스' 강민호-김상호 백투백 홈런 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203774
+- 최준석 시원한 배트 플립, 타구 위치는 어디? / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203786
+- 박진형 글러브 패스 받은 문규현의 골(?) / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203792
+- '한화의 보물' 양성우 잠재력 폭발, 솔로 홈런 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203797
+- '주석아 미안' 심수창 병살 만드는 반사신경 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203803
+- 문규현 덕아웃 쪽으로 날려버린 치명적인 실책 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203817
+- 이글스의 정근우, 우중간 가르는 2타점 2루타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203820
+- 정훈 외야로 빠져 나가는 타구 잡는 좋은 수비 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203841
+- '4할 타자' 김문호 좌투수 상대로 추격의 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203851
+- '자꾸 왜 불러' 황재균에게 적시타 맞는 송창식 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203854
+- 송창식 병살 유도해내며 위기 탈출 '넘버원' / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203855
+- 차일목 베테랑 다운 타격, 귀중한 1타점 2루타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203860
+- 윤길현 계속되는 견제, 야유로 화답하는 홈팬들 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203864
+- 이용규, 황재균 옆 스치는 쐐기 1타점 2루타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203867
+- '자원 등판' 권혁 불꽃 투혼 발휘하며 마무리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/202205/203873
