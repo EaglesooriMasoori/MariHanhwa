@@ -99,3 +99,10 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/202205/203837
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/202205/203877
 - Full: http://m.sports.naver.com/video.nhn?id=193985
+
+### 2016-05-29 [한화 9-2 롯데] '로저스 완투승' 한화, 롯데 잡고 시즌 첫 4연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/202211/204271
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/202211/204221
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/202211/204260
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/202211/204275
+- Full: http://m.sports.naver.com/video.nhn?id=194290

@@ -741,3 +741,56 @@
   - http://m.live.sports.media.daum.net/video/kbo/202205/203867
 - '자원 등판' 권혁 불꽃 투혼 발휘하며 마무리 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/202205/203873
+
+### 2016-05-29 [한화 9-2 롯데] '로저스 완투승' 한화, 롯데 잡고 시즌 첫 4연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/202211/204271
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/202211/204221
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/202211/204260
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/202211/204275
+- Full: http://m.sports.naver.com/video.nhn?id=194290
+- [MVP] '우람, 권혁, 창식, 정진, 수창, 민재 다 쉬어!' 완투승 로저스
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204278
+- [인터뷰] '어머니, 팀 승리, 조인성, 김태균 생일 몰라요' 로저스
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204277
+- 'Dear My Fan Day' 한화 선수들이 직접 쓴 손편지
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204162
+- 어느 가수 지망생의 소울 가득한 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204171
+- 정근우 동점홈런 때 포효했던 이제원 어린이 시구
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204176
+- [라인업] 롯데 vs 한화, 5월 29일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204181
+- '1회초 선두 타자 3구 홈런' 손아섭 선취 솔로포 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204180
+- 이용규 좀처럼 보기드문 시즌 3번째 병살타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204189
+- '팬들이 원한다면 쳐드리죠' 김태균 역전 투런포 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204192
+- 강민호 몸에 맞는 볼 이후 로저스와의 이상 기류 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204203
+- '헤이 주석, 나 힘들어' 로사리오 날렵한 태그 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204209
+- '화장실 다녀왔더니..' 이성민 공 4개로 이닝 종료 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204228
+- 로저스, 가족이 보는 앞에서 KKK 삼진 퍼레이드 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204233
+- 로사리오 볼 판정 불만 지워내는 1타점 2루타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204239
+- 양성우 홈 팬들 열광시키는 추가 1타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204240
+- '번트요? 저 하주석인데요' 하주석 스리런포 작렬 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204244
+- 로사리오 캐치 후 송구+로저스 베이스 커버 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204248
+- 로저스 삼진 2개 포함, 깔끔한 삼자범퇴 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204253
+- '역대 26번째 통산 800타점' 조인성 1타점 적시타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204257
+- 정근우, 이제원 어린이 응원 보답한 적시 2루타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204258
+- 김상호 득점권 부진 씻어내는 1타점 2루타 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204262
+- '넘어져 아픈것도 서러운데' 김준태 3루에서 아웃 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204264
+- '127구 완투' 경기 마무리 짓는 이닝이터 로저스 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/202211/204270
