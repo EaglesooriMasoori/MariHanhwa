@@ -106,3 +106,11 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/202211/204260
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/202211/204275
 - Full: http://m.sports.naver.com/video.nhn?id=194290
+
+### 2016-05-31 [한화 8-4 SK] '양성우 역전타' 한화, SK 꺾고 8년 만에 5연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/203269/204757
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/203269/204644
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/203269/204697
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/203269/204762
+- Full: http://m.sports.naver.com/video.nhn?id=194811
+

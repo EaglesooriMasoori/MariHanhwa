@@ -794,3 +794,55 @@
   - http://m.live.sports.media.daum.net/video/kbo/202211/204264
 - '127구 완투' 경기 마무리 짓는 이닝이터 로저스 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/202211/204270
+
+### 2016-05-31 [한화 8-4 SK] '양성우 역전타' 한화, SK 꺾고 8년 만에 5연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/203269/204757
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/203269/204644
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/203269/204697
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/203269/204762
+- Full: http://m.sports.naver.com/video.nhn?id=194811
+- [MVP] 팀 5연승 챙기는 호쾌한 스윙의 로사리오
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204777
+- [인터뷰] 양성우 '팬 여러분 사랑합니다'
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204606
+- 한남대학교 이덕훈 총장 시구, 이상호 학생회장 시타
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204611
+- [라인업] SK vs 한화, 5월 31일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204615
+- 송은범 기분 좋게 출발하는 2K 삼자범퇴 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204630
+- '볼넷 아니에요?' 볼 카운트 착각한 정근우 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204617
+- 김광현 강습 타구 정강이에 맞는 아찔한 상황 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204626
+- 송광민 실점 위기 완벽히 틀어막는 호수비 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204631
+- 최정, 김광현 박수 부르는 빠른 반사신경 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204634
+- 로사리오 치는 순간 직감한 장외 투런 홈런 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204650
+- 최정민 합의 판정 끝에 얻어낸 만루 기회 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204655
+- 김성현, 송은범 강판 시키는 동점 적시타 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204663
+- 최정 역전에 성공하는 1타점 희생 플라이 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204671
+- 하주석, 권혁에게 삼자범퇴 선물하는 호수비 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204686
+- 양성우 경기 흐름 뒤집는 2타점 적시타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204696
+- 정근우 보는 눈을 즐겁게 만드는 멋진 수비 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204699
+- 호수비엔 호수비로 보답하는 최승준 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204706
+- 송광민-김태균 점수 차 벌리는 2타점 합작 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204718
+- 송창식 상대 중심 타선 막아낸 위력적인 구위 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204725
+- 정근우-이용규 두 점 추가하는 2타점 합작 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204735
+- 고메즈 경기 끝까지 포기 않는 솔로 홈런 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204742
+- [인터뷰] 로사리오 MVP 선정 기념 로저스의 축하 세리머니
+  - http://m.live.sports.media.daum.net/video/kbo/203269/204760
+
