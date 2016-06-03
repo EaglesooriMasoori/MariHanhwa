@@ -121,3 +121,11 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/203284/205671
 - Full: http://m.sports.naver.com/video.nhn?id=195486
 
+### 2016-06-03 [한화 4-3 삼성] '로사리오 결승타' 한화, 삼성에 4-3 재역전승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/203290/206044
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/203290/205922
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/203290/205969
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/203290/206033
+- 10~12: http://m.live.sports.media.daum.net/video/kbo/203290/206047
+- Full: 
+

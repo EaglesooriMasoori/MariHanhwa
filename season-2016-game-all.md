@@ -895,3 +895,66 @@
 - [인터뷰] 켈리 '공격적인 자세가 긴 이닝 비결'
   - http://m.live.sports.media.daum.net/video/kbo/203284/205526
 
+### 2016-06-03 [한화 4-3 삼성] '로사리오 결승타' 한화, 삼성에 4-3 재역전승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/203290/206044
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/203290/205922
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/203290/205969
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/203290/206033
+- 10~12: http://m.live.sports.media.daum.net/video/kbo/203290/206047
+- Full: 
+- [MVP] '미운 오리 아닌 백조' 4번 타자 로사리오
+  - http://m.live.sports.media.daum.net/video/kbo/203290/206048
+- [라인업] 한화 vs 삼성, 6월 3일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205890
+- 흔들린 장원삼, 선취점 올리는 로사리오-양성우 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205886
+- 이용규, 배영섭의 깊숙한 타구 처리 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205893
+- 연속 탈삼진으로 위기 넘기는 이태양 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205899
+- 이용규-이성열 아쉬운 수비, 병살 유도 이태양 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205906
+- 슈퍼 소닉 로사리오, 뒤바뀐 삼성의 행복 수비 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205908
+- 정신 차린 삼성 수비, 무실점 틀어막는 장원삼 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205916
+- '태균이 형, 생유요!' 위기탈출 넘버원 이태양 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205924
+- 다시 찾아온 삼성의 기회, 또 탈출하는 이태양 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205931
+- 빠른 발로 득점 만든 박해민, 이승엽 적시타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205943
+- '뭣이 중한지 아는' 정근우, 실점과 맞바꾼 아웃 카운트 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205953
+- 조인성 집중력 끝까지 유지한 파울볼 처리 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205961
+- 기습 번트와 실책이 동시에, 경기 뒤집는 박해민 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205976
+- 허탈한 장원삼, 신성현 동점 솔로포 폭발 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205981
+- 최형우 백투백 홈런 지우는 환상 캐치 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205987
+- '라팍의 탄식' 한 끗 차이로 홈런 놓치는 박한이 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205992
+- 합의 판정만 세 번, 권혁의 힘겨운 이닝 종료 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/206007
+- 로사리오 과감한 도루 시도로 이닝 마무리 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/203290/206017
+- 오늘도 멀티 이닝 소화하는 권혁 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/206020
+- 하주석 투혼의 출루, 범타로 물러나는 정근우 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/203290/206026
+- 정우람 연속 탈삼진으로 연장 돌입 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/206032
+- '완급 조절까지..' 심창민 타선 압도하는 피칭 / 11회초
+  - http://m.live.sports.media.daum.net/video/kbo/203290/206036
+- 조동찬 치명적 실책성 플레이, 정근우 역전 득점 / 12회초
+  - http://m.live.sports.media.daum.net/video/kbo/203290/206041
+- 승부수? 박한이-최선호의 치명적인 도루 실패 / 12회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/206043
+- 심수창 짜릿한 역전 승리 지키는 삼진 아웃 / 12회말
+  - http://m.live.sports.media.daum.net/video/kbo/203290/206045
+- 박신영 아나운서가 전하는 라팍 더그아웃 미스트
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205866
+- 영천성남여고 애국가 합창과 관악기 연주
+  - http://m.live.sports.media.daum.net/video/kbo/203290/205875
