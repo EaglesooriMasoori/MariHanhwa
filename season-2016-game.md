@@ -114,3 +114,10 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/203269/204762
 - Full: http://m.sports.naver.com/video.nhn?id=194811
 
+### 2016-06-02 [한화 4-1 SK] '김태균 쐐기포' 한화, SK 꺾고 위닝 시리즈
+- H/L: http://m.live.sports.media.daum.net/video/kbo/203284/205669
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/203284/205587
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/203284/205630
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/203284/205671
+- Full: http://m.sports.naver.com/video.nhn?id=195486
+

@@ -846,3 +846,52 @@
 - [인터뷰] 로사리오 MVP 선정 기념 로저스의 축하 세리머니
   - http://m.live.sports.media.daum.net/video/kbo/203269/204760
 
+### 2016-06-02 [한화 4-1 SK] '김태균 쐐기포' 한화, SK 꺾고 위닝 시리즈
+- H/L: http://m.live.sports.media.daum.net/video/kbo/203284/205669
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/203284/205587
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/203284/205630
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/203284/205671
+- Full: http://m.sports.naver.com/video.nhn?id=195486
+- [MVP] '개인 최다 이닝' 한화 장민재, 7이닝 1실점 인생투
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205698
+- [인터뷰] 장민재 승리 소감, 로저스의 승리기념 물세례
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205680
+- '언제 한 번 타석 나와야 하는데..' 장난꾸러기 로저스
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205606
+- '역대 2호' 김성근 감독 2,500경기 출장 기념행사
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205527
+- [라인업] SK vs 한화, 6월 2일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205532
+- 시즌 세 번째 선발 장민재, 쾌조의 출발 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205533
+- 이명기, 정근우 2루타 강탈하는 나이스 캐치 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205541
+- 고메즈와 기싸움 벌인 장민재, 병살로 반사 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205550
+- 박종훈 2루타 허용에도 무실점 마무리 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205554
+- 결국 신의 한 수가 된 장민재의 3루 선택 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205565
+- 진화하는 로사리오, 선취 2타점 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205578
+- '걸리면 넘어간다' 고메즈 추격의 솔로포 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205589
+- '근우형, 고마워요' 6구 만에 이닝 지우는 장민재 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205601
+- 'Again 5년 전 6월' 장민재 1K 삼자범퇴 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205613
+- '힘들 때 웃어야 일류다' 고메즈와 양성우 충돌 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205618
+- 작전 야구? 무사 1-2루 기회 날리는 한화 타선 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205636
+- '찬스 날려도 괜찮아' 마운드 지키는 장민재 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205639
+- '감 잡은' 김태균 달아나는 투런포 작렬 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205649
+- 하루 휴식 후 등판 권혁, 가볍게 이닝 종료 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205662
+- '승리 요정' 권혁 무실점으로 경기 마무리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205667
+- [인터뷰] 켈리 '공격적인 자세가 긴 이닝 비결'
+  - http://m.live.sports.media.daum.net/video/kbo/203284/205526
+
