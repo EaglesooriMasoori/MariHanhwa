@@ -901,7 +901,7 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/203290/205969
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/203290/206033
 - 10~12: http://m.live.sports.media.daum.net/video/kbo/203290/206047
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=195887
 - [MVP] '미운 오리 아닌 백조' 4번 타자 로사리오
   - http://m.live.sports.media.daum.net/video/kbo/203290/206048
 - [라인업] 한화 vs 삼성, 6월 3일 경기
@@ -958,3 +958,54 @@
   - http://m.live.sports.media.daum.net/video/kbo/203290/205866
 - 영천성남여고 애국가 합창과 관악기 연주
   - http://m.live.sports.media.daum.net/video/kbo/203290/205875
+
+### 2016-06-03 [한화 8-7 삼성] '로사리오 결승타' 한화, 삼성 꺾고 3연승 질주
+- H/L: http://m.live.sports.media.daum.net/video/kbo/203296/206294
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/203296/206227
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/203296/206266
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/203296/206297
+- Full: http://m.sports.naver.com/video.nhn?id=196136
+- [MVP] '50구 역투' 만루위기 잠재운 송창식
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206307
+- 김성근 감독을 향한 로사리오의 폴더 인사
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206172
+- [라인업] 한화 vs 삼성, 6월 4일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206182
+- 정근우를 불러들이는 김태균 1타점 내야 땅볼 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206177
+- 이승엽 땅볼-최형우 적시타로 2득점하며 역전 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206183
+- '악송구' 사인 미스가 불러온 실점 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206185
+- '1회에만 4득점' 조동찬 1타점 희생플라이 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206188
+- 이성열 점수 차 좁히는 호쾌한 투런포 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206191
+- 김태균 바로 동점을 만드는 1타점 적시타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206197
+- 김태균 날렵함이 돋보인 나이스 캐치 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206203
+- 배영섭 넓은 수비범위 보여주는 캐치 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206206
+- '역대 6번째 1,000사사구 달성' 박한이 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206209
+- 로저스 자진 강판, 1사 만루를 막는 김재영 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206216
+- '테이블세터' 정근우-이용규 1타점 합작 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206220
+- 이지영, 김재영 상대 솔로 홈런 폭발 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206223
+- 송창식 무사 만루 위기 막는 혼신의 역투 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206242
+- '기립박수' 송창식 다시 한번 만루 위기 모면 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206263
+- 로사리오-양성우 균형을 깨는 연속 적시타 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206269
+- 김정혁 데뷔 첫 홈런 기록하는 솔로포 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206275
+- 김태균 합의판정으로 번복된 수비 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206282
+- 무사 만루 찬스, 심수창 대 배영섭-박해민 그 결과는? / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206290
+- '손발이 척척' 라이온즈 파크의 방수포
+  - http://m.live.sports.media.daum.net/video/kbo/203296/206170

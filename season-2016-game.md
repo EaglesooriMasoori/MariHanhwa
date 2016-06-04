@@ -127,5 +127,12 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/203290/205969
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/203290/206033
 - 10~12: http://m.live.sports.media.daum.net/video/kbo/203290/206047
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=195887
+
+### 2016-06-03 [한화 8-7 삼성] '로사리오 결승타' 한화, 삼성 꺾고 3연승 질주
+- H/L: http://m.live.sports.media.daum.net/video/kbo/203296/206294
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/203296/206227
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/203296/206266
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/203296/206297
+- Full: http://m.sports.naver.com/video.nhn?id=196136
 
