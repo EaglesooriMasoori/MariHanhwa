@@ -959,7 +959,7 @@
 - 영천성남여고 애국가 합창과 관악기 연주
   - http://m.live.sports.media.daum.net/video/kbo/203290/205875
 
-### 2016-06-03 [한화 8-7 삼성] '로사리오 결승타' 한화, 삼성 꺾고 3연승 질주
+### 2016-06-04 [한화 8-7 삼성] '로사리오 결승타' 한화, 삼성 꺾고 3연승 질주
 - H/L: http://m.live.sports.media.daum.net/video/kbo/203296/206294
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/203296/206227
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/203296/206266
@@ -1009,3 +1009,56 @@
   - http://m.live.sports.media.daum.net/video/kbo/203296/206290
 - '손발이 척척' 라이온즈 파크의 방수포
   - http://m.live.sports.media.daum.net/video/kbo/203296/206170
+
+### 2016-06-05 [한화 6-5 삼성] '김태균 연장 결승타' 한화, 삼성 꺾고 주말 3연전 싹쓸이
+- H/L: http://m.live.sports.media.daum.net/video/kbo/203301/206611
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/203301/206503
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/203301/206540
+- 7~10: http://m.live.sports.media.daum.net/video/kbo/203301/206612
+- Full: 
+- [MVP] '중심 타선의 중심' 결승타 주인공 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206615
+- [라인업] 한화 vs 삼성, 6월 5일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206460
+- 김정혁 선취점 안기는 2타점 적시 2루타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206473
+- 김상수 복귀를 알리는 1타점 적시타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206476
+- 김정혁-박해민 주자 출루 막는 좋은 호흡 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206484
+- '눈 감아도 잡는다' 이지영 감각적인 블로킹 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206487
+- 송은범 스스로 위기를 벗어나는 위력적인 KK / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206498
+- 신성현 날카로운 안타성 타구 지우는 호수비 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206509
+- '안타 같은데..' 아쉬움 마음 표하는 정근우 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206512
+- 이용규 12년 연속 두 자릿수 도루 달성 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206525
+- 로사리오 주자 쓸어 담는 추격의 적시타 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206515
+- 김상수 글러브 토스 실패, 동점 만드는 한화 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206518
+- 최형우 다시 앞서 나가는 1타점 내야 땅볼 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206532
+- 김태균 귀루 과정에 어필하는 류중일 감독 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206547
+- 배트를 던진 이승엽, 주저 앉는 권혁 이 타구의 행방은? / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206555
+- 정근우 동점 만드는 1타점 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206565
+- 병살타 후 베이스 잘못 밟고 쓰러진 이용규 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206579
+- 로사리오에게 수비 요청하는 정우람, 타구 잡는 신성현 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206587
+- '수훈 예약요' 김태균 역전의 2타점 적시타 / 10회초
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206601
+- 정우람 피 말리는 접전 끝에 1점만 내주며 경기 종료 / 10회말
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206610
+- 달성군 리틀 야구단의 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206446
+- '오늘 경기의 리포트' 김선신 아나운서
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206456
+- 웹스터 교체 이유 전하는 김선신 아나운서
+  - http://m.live.sports.media.daum.net/video/kbo/203301/206544
