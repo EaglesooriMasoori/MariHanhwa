@@ -141,5 +141,4 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/203301/206503
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/203301/206540
 - 7~10: http://m.live.sports.media.daum.net/video/kbo/203301/206612
-- Full: 
-
+- Full: http://m.sports.naver.com/video.nhn?id=196553

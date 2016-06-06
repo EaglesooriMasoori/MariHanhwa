@@ -1015,7 +1015,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/203301/206503
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/203301/206540
 - 7~10: http://m.live.sports.media.daum.net/video/kbo/203301/206612
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=196553
 - [MVP] '중심 타선의 중심' 결승타 주인공 김태균
   - http://m.live.sports.media.daum.net/video/kbo/203301/206615
 - [라인업] 한화 vs 삼성, 6월 5일 경기
