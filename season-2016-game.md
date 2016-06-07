@@ -142,3 +142,10 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/203301/206540
 - 7~10: http://m.live.sports.media.daum.net/video/kbo/203301/206612
 - Full: http://m.sports.naver.com/video.nhn?id=196553
+
+### 2016-06-07 [한화 5-3 KIA] '윤규진 12년 만의 선발승' 한화, KIA 꺾고 5연승 질주
+- H/L: http://m.live.sports.media.daum.net/video/kbo/205353/207035
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/205353/206952
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/205353/206980
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/205353/207031
+- Full: http://m.sports.naver.com/video.nhn?id=196993

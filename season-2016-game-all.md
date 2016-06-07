@@ -1062,3 +1062,42 @@
   - http://m.live.sports.media.daum.net/video/kbo/203301/206456
 - 웹스터 교체 이유 전하는 김선신 아나운서
   - http://m.live.sports.media.daum.net/video/kbo/203301/206544
+
+### 2016-06-07 [한화 5-3 KIA] '윤규진 12년 만의 선발승' 한화, KIA 꺾고 5연승 질주
+- H/L: http://m.live.sports.media.daum.net/video/kbo/205353/207035
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/205353/206952
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/205353/206980
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/205353/207031
+- Full: http://m.sports.naver.com/video.nhn?id=196993
+- [MVP] '4263일, 선발승' 윤규진
+  - http://m.live.sports.media.daum.net/video/kbo/205353/207057
+- [라인업] KIA vs 한화, 6월 7일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206899
+- 윤규진 한이닝 삼진 3개 솎아내는 환상투 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206919
+- 위기에서 더블플레이 만드는 KIA 내야진 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206923
+- '자동 태그' 차일목 관록있는 도루 저지 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206925
+- 송광민-김태균 연속 적시타로 2득점 성공 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206938
+- 로사리오, 송광민 부르는 1타점 희생플라이 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206941
+- 김주찬 맞는 순간 직감한 솔로 홈런 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206947
+- 윤규진 안정적인 선택으로 만든 더블플레이 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206957
+- 강한울 강타구 지우는 멋진 호수비 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206962
+- '복덩이' 로사리오 괴력의 솔로 홈런 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206975
+- 송주호 흐름을 끊는 아쉬운 견제사 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206991
+- 2사 만루찬스, 로사리오 루킹 삼진 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/205353/206998
+- '완벽한 스윙' 김주찬 2타점 적시 3루타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/205353/207007
+- 차일목, KIA 상대 첫 솔로 홈런 작렬 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/205353/207014
+- 심수창 위기를 병살타로 틀어막으며 종료 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/205353/207028
