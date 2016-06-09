@@ -1101,3 +1101,56 @@
   - http://m.live.sports.media.daum.net/video/kbo/205353/207014
 - 심수창 위기를 병살타로 틀어막으며 종료 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/205353/207028
+
+### 2016-06-08 [한화 5-3 KIA] '정근우 역전 스리런' 한화, KIA 꺾고 8년 만에 6연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/205359/207398
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/205359/207260
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/205359/207333
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/205359/207406
+- Full: http://m.sports.naver.com/video.nhn?id=197327
+- [MVP] 히어로 정근우 '2591일 만에 6연승 일군 역전 홈런'
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207416
+- 로사리오가 로요미인 이유 '코치님 저기 하트!'
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207281
+- [라인업] KIA vs 한화, 6월 8일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207216
+- '원-투-쓰리' 장민재 삼자범퇴 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207218
+- 로사리오 삼구삼진으로 돌려세우는 지크 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207226
+- '범호야, 많이 아프다' 수난 당하는 조인성 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207230
+- 볼넷 허용 장민재, 병살타 유도하며 이닝 종료 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207232
+- 득점 찬스에서 범타로 물러나는 정근우 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207242
+- 빠른 스타트 빛난 이용규의 호수비 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207247
+- 나지완 플라이아웃 처리하는 장민재 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207253
+- 장민재, KIA 중심 세 타자 범타 처리 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207266
+- 김기태 감독, 지크 보크 판정에 강력한 어필 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207270
+- '위력적인 투구' 스스로 위기 벗어나는 지크 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207275
+- 이용규에게 당한 지크, 분노의 연속 탈삼진 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207301
+- 길었던 합의 판정, 김호령 스트라이크 낫 아웃으로 출루 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207311
+- '시즌 9호' 이범호, 장민재 상대로 스리런포 폭발 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207317
+- 'KBO리그 첫 두 자릿수 탈삼진' 지크의 역투 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207338
+- 마운드 오른 박정진 KK 삼자범퇴 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207343
+- '외야 호령' 김호령 실점 막는 과감한 수비 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207364
+- 무사 1-2루, 찬스 날린 이용규-송광민-김태균 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207356
+- '한화는 역시 약속의 8회!' 차일목-이종환 연속 적시타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207386
+- '마리 한화, 완벽 빠던' 정근우 역전 스리런포 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207388
+- '우리는 6연승으로 간다' 정우람 승리 지키는 세이브 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/205359/207401
