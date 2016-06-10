@@ -1101,3 +1101,62 @@
   - http://m.live.sports.media.daum.net/video/kbo/205353/207014
 - 심수창 위기를 병살타로 틀어막으며 종료 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/205353/207028
+
+### 2016-06-10 [한화 2-1 LG] '정근우 연장 10회 끝내기' 한화, LG전 4연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/205494/208052
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/205494/207945
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/205494/207979
+- 7~10: http://m.live.sports.media.daum.net/video/kbo/205494/208055
+- Full: http://m.sports.naver.com/video.nhn?id=197911
+- [MVP] '경기를 지배했다' 한화 이글스 유격수 하주석
+  - http://m.live.sports.media.daum.net/video/kbo/205494/208074
+- [라인업] LG vs 한화, 6월 10일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207915
+- 십년감수 송은범, 박용택 땅볼 처리 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207908
+- 송은범 밀리터리 유니폼 입고 삼자범퇴 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207920
+- 안타 허용 우규민, 삼진으로 이닝 종료 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207929
+- '정근우도 이겼는데..' 히메네스 도루 실패, 찬스 날린 오지환 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207933
+- 거포 히메네스 삼진 처리하는 송은범 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207942
+- '히메네스 고마워' 우규민 세 타자 범타 처리 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207949
+- '나비처럼 날아 벌처럼 쏜다' 하주석 환상 수비 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207952
+- 역대 18호, 개인 통산 1700안타 달성하는 김태균 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207956
+- 유규민, 하주석 삼진으로 잡고 위기 탈출 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207961
+- 장민석 집중력 빛난 파울볼 캐치 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207969
+- '마의 5회는 없다' 송은범 순식간에 이닝 마무리 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207965
+- '송은범가너 모드' 6이닝 무실점 송은범 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207982
+- 이용규에게 사과한 우규민, LTE급 이닝 종료 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207994
+- '솔로포 샤샤샤' 균형 깨는 하주석 홈런 작렬 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/208000
+- 포기는 없다, 실점 허용하지 않는 우규민 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/208017
+- '승부는 원점' 유강남, 정우람 상대 동점 적시타 폭발 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/205494/208023
+- 임정우 KK 삼자범퇴, 귀신같은 연장전 돌입 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/208032
+- LG 상위 타선 돌려세우는 정우람 / 10회초
+  - http://m.live.sports.media.daum.net/video/kbo/205494/208034
+- 조인성 번트 대신 강공, 막아내는 오지환 / 10회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/208041
+- 숨 막혔던 승부, 끝내기 아픔 돌려준 정근우 / 10회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/208058
+- '끝내주는 금요일 밤' 정근우 역전 끝내기 / 10회말
+  - http://m.live.sports.media.daum.net/video/kbo/205494/208047
+- '호국 보훈의 날' 국가유공자 대표-대전 학하초등학교 학생 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207906
+- 김선신 아나운서가 전하는 한화 로저스 패밀리 소식
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207912
+- '어질어질' 은행 냄새 가득한 대전 경기 중계진
+  - http://m.live.sports.media.daum.net/video/kbo/205494/207988

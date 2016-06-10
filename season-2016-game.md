@@ -149,3 +149,10 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/205353/206980
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/205353/207031
 - Full: http://m.sports.naver.com/video.nhn?id=196993
+
+### 2016-06-10 [한화 2-1 LG] '정근우 연장 10회 끝내기' 한화, LG전 4연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/205494/208052
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/205494/207945
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/205494/207979
+- 7~10: http://m.live.sports.media.daum.net/video/kbo/205494/208055
+- Full: http://m.sports.naver.com/video.nhn?id=197911
