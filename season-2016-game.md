@@ -150,6 +150,13 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/205353/207031
 - Full: http://m.sports.naver.com/video.nhn?id=196993
 
+### 2016-06-08 [한화 5-3 KIA] '정근우 역전 스리런' 한화, KIA 꺾고 8년 만에 6연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/205359/207398
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/205359/207260
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/205359/207333
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/205359/207406
+- Full: http://m.sports.naver.com/video.nhn?id=197327
+
 ### 2016-06-10 [한화 2-1 LG] '정근우 연장 10회 끝내기' 한화, LG전 4연패 탈출
 - H/L: http://m.live.sports.media.daum.net/video/kbo/205494/208052
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/205494/207945
