@@ -163,3 +163,10 @@
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/205494/207979
 - 7~10: http://m.live.sports.media.daum.net/video/kbo/205494/208055
 - Full: http://m.sports.naver.com/video.nhn?id=197911
+
+### 2016-06-11 [한화 6-5 LG] '양성우 끝내기’ 한화, LG 잡고 위닝시리즈-공동 9위
+- H/L: http://m.live.sports.media.daum.net/video/kbo/205506/208886
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/205506/208750
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/205506/208799
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/205506/208895
+- Full: 

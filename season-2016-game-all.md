@@ -1213,3 +1213,61 @@
   - http://m.live.sports.media.daum.net/video/kbo/205494/207912
 - '어질어질' 은행 냄새 가득한 대전 경기 중계진
   - http://m.live.sports.media.daum.net/video/kbo/205494/207988
+
+### 2016-06-11 [한화 6-5 LG] '양성우 끝내기’ 한화, LG 잡고 위닝시리즈-공동 9위
+- H/L: http://m.live.sports.media.daum.net/video/kbo/205506/208886
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/205506/208750
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/205506/208799
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/205506/208895
+- Full: 
+- [라인업] LG vs 한화, 6월 12일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208726
+- 정성훈, 팀 상승세 이어가는 선취 1타점 적시타 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208696
+- 로사리오의 좋은 선택, 더블 플레이 성공 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208701
+- '차세대 오지환' 강승호 나이스 플레이 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208708
+- '해결사' 김태균 동점 적시타, 송광민 병살타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208715
+- 코프랜드의 맨손 번트 수비, 깔끔한 삼자범퇴 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208734
+- 양상문 감독 작전 야구, 히메네스-이병규 연속 적시타 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208745
+- '바뀐 투수의 초구를 공략하라' 유강남 솔로포 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208756
+- 박정진 스퀴즈 막아내는 혼신의 토스 송구 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208765
+- 송광민 번트 실패, 하늘 보며 탄식하는 김성근 감독 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208792
+- 번트 실패와 삼진 끝에 하주석 1타점 추격타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208775
+- 거포 정근우, 대전 열광하게 하는 홈런 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208783
+- '일목차, 고의가 아니야' 코프랜드의 빠른 사과 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208806
+- '이닝 이터?' 권혁 깔끔한 삼자범퇴 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208902
+- '이런 야구가 있습니다!' 로사리오 역전 투런포 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208820
+- 히메네스 소름 돋는 동점 솔로포 작렬 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208828
+- 마운드 내려간 후 아쉬워하는 권혁 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208848
+- 혈전 돌입, 역전 허락하지 않는 정우람 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208840
+- 합의 판정으로 보는 이병규의 환상 홈 보살 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208857
+- '아빠가 제일 아쉽다' 이병규 호수비에 막히는 정근우 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208873
+- '정우람이 정우람인 이유' 위기 탈출 정우람 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208909
+- '이글스 극장의 마무리' 양성우 역전 끝내기 희생타 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208880
+- '시작은 이용규, 마무리는 양성우' 짜릿한 역전 끝내기 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208898
+- 여행 스케치 멤버 남준봉, 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208686
+- 사이드 암으로 멋진 시구하는 여행스케치 보컬 남준봉
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208689
+
