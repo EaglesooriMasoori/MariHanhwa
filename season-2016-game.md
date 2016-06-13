@@ -169,4 +169,4 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/205506/208750
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/205506/208799
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/205506/208895
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=198634
