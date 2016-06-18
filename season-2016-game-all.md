@@ -1214,12 +1214,14 @@
 - '어질어질' 은행 냄새 가득한 대전 경기 중계진
   - http://m.live.sports.media.daum.net/video/kbo/205494/207988
 
-### 2016-06-11 [한화 6-5 LG] '양성우 끝내기’ 한화, LG 잡고 위닝시리즈-공동 9위
+### 2016-06-12 [한화 6-5 LG] '양성우 끝내기’ 한화, LG 잡고 위닝시리즈-공동 9위
 - H/L: http://m.live.sports.media.daum.net/video/kbo/205506/208886
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/205506/208750
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/205506/208799
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/205506/208895
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=198269
+- [MVP] 로사리오 홈런 포함 4안타 '다시 불방망이 가동'
+  - http://m.live.sports.media.daum.net/video/kbo/205506/208914
 - [라인업] LG vs 한화, 6월 12일 경기
   - http://m.live.sports.media.daum.net/video/kbo/205506/208726
 - 정성훈, 팀 상승세 이어가는 선취 1타점 적시타 / 1회초
@@ -1270,4 +1272,77 @@
   - http://m.live.sports.media.daum.net/video/kbo/205506/208686
 - 사이드 암으로 멋진 시구하는 여행스케치 보컬 남준봉
   - http://m.live.sports.media.daum.net/video/kbo/205506/208689
+
+### 2016-06-17 [한화 8-5 넥센] '로사리오 멀티포' 한화, 넥센 꺾고 2연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/207541/210767
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/207541/210636
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/207541/210699
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/207541/210770
+- Full: http://m.sports.naver.com/video.nhn?id=200362
+- [MVP] '우리 윌린이가 제일 잘 치지 않나 시프요' 로사리오
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210780
+- [라인업] 넥센 vs 한화, 6월 17일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210605
+- 서건창 도루 시도, 공을 더듬거린 차일목 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210563
+- '처음부터 열심히 뛰었다면' 고종욱 적시타 이후 아웃 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210567
+- 장운호 펜스 앞에서 침착한 점프 캐치 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210574
+- '다시 너를 볼 수 있을까?' 마에스트리 밀어내기, 강판 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210584
+- 장민재, 채태인 삼진 잡으며 마에스트리 구원 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210590
+- 정근우 파울 타구 맞고 쓰러지는 아찔한 상황 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210593
+- '청주의 아들' 장운호 적시타, 이택근 송구 미스 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210609
+- '이글스의 심장' 정근우 동점 적시타 작렬 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210610
+- '저는 괜.. 괜찮아요' 이택근 멋진 슬라이딩 캐치 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210617
+- '병살인데 적시타라고?' 장민재 치명적인 실책 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210623
+- '시즌 5호' 김태균 컨택 능력으로 만든 솔로홈런 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210631
+- '나는 미안해서 너희 뒤에 있을게' 마에스트리 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210643
+- '머리 좀 살살 때려' 고종욱 밀어서 솔로 홈런 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210646
+- '머리 살살 때리라니까' 윤석민 대형 솔로포 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210649
+- '우쭈쭈' 김민성, 이용규 기습번트 대처하는 방법 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210661
+- 송광민, 정근우 불러들이는 1타점 희생플라이 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210664
+- '아웃인데? 세잎인데?' 김민성-이용규의 진실게임 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210673
+- 로사리오 우측 펜스 살짝 넘어가는 역전 투런포 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210676
+- '일석이조' 김민성 3루 가는 주자 잡고 타자도 잡고 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210691
+- '진실게임 2탄' 송광민 글러브에 공은 닿았을까? / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210695
+- '뭐야, 공 왜 안 와?' 파울인 걸 모르는 이용규의 투지 /  7회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210714
+- '난 이제 지쳤어요 땡벌' 이용규 생수 드링킹 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210718
+- 김하성 몸을 사리지 않는 멋진 다이빙 캐치 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210724
+- '스트라이크에요?' 채태인 그저 하염없이 땅만 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210727
+- 권혁, 시즌 최다 투구수 경신하며 이닝 마무리 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210736
+- '복덩이' 로사리오 시즌 2번째 연타석 홈런 작렬 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210750
+- '우리 예쁜 로사리오' 김성근 감독 하이파이브 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210751
+- 장운호, 고종욱 앞 뚝 떨어지는 1타점 적시타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210757
+- '걱정말아요 그대' 정우람 가볍게 경기 마무리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210769
+- 청주시장 이승훈 시구, 모범 헌혈자 송문규 시타
+  - http://m.live.sports.media.daum.net/video/kbo/207541/210559
+
+
 
