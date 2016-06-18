@@ -169,7 +169,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/205506/208750
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/205506/208799
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/205506/208895
-- Full: http://m.sports.naver.com/video.nhn?id=198269
+- Full: http://m.sports.naver.com/video.nhn?id=198634
 
 ### 2016-06-17 [한화 8-5 넥센] '로사리오 멀티포' 한화, 넥센 꺾고 2연패 탈출
 - H/L: http://m.live.sports.media.daum.net/video/kbo/207541/210767

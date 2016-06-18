@@ -1219,7 +1219,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/205506/208750
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/205506/208799
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/205506/208895
-- Full: http://m.sports.naver.com/video.nhn?id=198269
+- Full: http://m.sports.naver.com/video.nhn?id=198634
 - [MVP] 로사리오 홈런 포함 4안타 '다시 불방망이 가동'
   - http://m.live.sports.media.daum.net/video/kbo/205506/208914
 - [라인업] LG vs 한화, 6월 12일 경기
