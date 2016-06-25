@@ -190,3 +190,14 @@
 - [MVP] '벤치클리어링은 경기 일부분' 송은범, NC 연승 저지 호투
   - http://m.live.sports.media.daum.net/video/kbo/210084/212357
 
+### 2016-06-25 [한화 8-1 롯데] '카스티요  KBO리그 데뷔전 승' 한화, 롯데 제압
+- H/L: http://m.live.sports.media.daum.net/video/kbo/210139/213696
+- H/L: http://m.sports.naver.com/video.nhn?id=202870
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/210139/213575
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/210139/213628
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/210139/213693
+- Full: http://m.sports.naver.com/video.nhn?id=202931
+- 주요장면'4안타 4득점' 이용규, 오늘 경기 승리의 주역 
+  - http://m.sports.naver.com/video.nhn?id=202888
+- [MVP] '성공적인 데뷔' 카스티요
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213702

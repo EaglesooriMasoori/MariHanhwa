@@ -1400,5 +1400,56 @@
 - '반복되는 역사, 뒤바뀐 운명' NC 연승 막는 송창식 / 9회말
   - http://m.live.sports.media.daum.net/video/kbo/210084/212329
 
+### 2016-06-25 [한화 8-1 롯데] '카스티요  KBO리그 데뷔전 승' 한화, 롯데 제압
+- H/L: http://m.live.sports.media.daum.net/video/kbo/210139/213696
+- H/L: http://m.sports.naver.com/video.nhn?id=202870
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/210139/213575
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/210139/213628
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/210139/213693
+- Full: http://m.sports.naver.com/video.nhn?id=202931
+- 주요장면'4안타 4득점' 이용규, 오늘 경기 승리의 주역 
+  - http://m.sports.naver.com/video.nhn?id=202888
+- [MVP] '성공적인 데뷔' 카스티요
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213702
+- 천안함 참전자 정다운 대위 의미 있는 시구
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213501
+- [라인업] 롯데 vs 한화, 6월 25일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213524
+- 카스티요 강한 인상 남긴 강속구로 삼자범퇴 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213508
+- 송광민 시작부터 불 뿜는 방망이 투런포 작렬 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213516
+- 황재균 엄청난 비거리 보여준 솔로 홈런 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213521
+- 박세웅 위기를 극복하는 연속 삼진 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213536
+- 카스티요 병살 유도하며 위기 탈출 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213543
+- 이용규 분위기 가져오는 벼락같은 솔로 홈런 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213546
+- '물오른 타격감' 송광민 백투백 홈런 작렬 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213550
+- 로사리오 행운이 따르는 시즌 첫 3루타  / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213556
+- '뒤늦은 스타트' 로사리오 아쉬운 주루사 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213561
+- 양성우 한 점 더 추가하는 1타점 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213569
+- 강경학, 카스티요 돕는 환상적인 호수비 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213573
+- 카스티요 승리 투수 요건 충족시키는 삼자범퇴 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213583
+- '평범한 뜬공?' 로사리오 2루 땅볼 아웃이 된 사연 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213590
+- 이용규 3루타를 염원하는 관중 앞에선 3번째 타석 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213605
+- 로사리오, 이용규 불러들이는 1타점 적시타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213618
+- 김경언 양쪽 모두 보호대 차고 대타로 등장 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213631
+- 이용규 어정쩡한 위치, 센스가 돋보인 캐치 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213648
+- 로사리오-장운호 쐐기를 박는 2득점 합작 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/210139/213671
 
 
