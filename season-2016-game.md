@@ -201,3 +201,15 @@
   - http://m.sports.naver.com/video.nhn?id=202888
 - [MVP] '성공적인 데뷔' 카스티요
   - http://m.live.sports.media.daum.net/video/kbo/210139/213702
+
+### 2016-06-28 [한화 13-3 넥센] '5홈런 폭발' 한화, 넥센 13-3 제압.. 9위에 0.5G 차
+- H/L: http://m.live.sports.media.daum.net/video/kbo/212531/214830
+- H/L: http://m.sports.naver.com/video.nhn?id=203975
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/212531/214728
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/212531/214783
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/212531/214827
+- Full: 
+- 주요장면'홈런+2루타' 김태균, 장타율 올리며 팀 승리 공헌
+  - http://m.sports.naver.com/video.nhn?id=203978
+- [MVP] '홈런 포함 2안타 2타점+100% 출루' 양성우
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214843

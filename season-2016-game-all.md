@@ -1452,4 +1452,50 @@
 - 로사리오-장운호 쐐기를 박는 2득점 합작 / 8회말
   - http://m.live.sports.media.daum.net/video/kbo/210139/213671
 
+### 2016-06-28 [한화 13-3 넥센] '5홈런 폭발' 한화, 넥센 13-3 제압.. 9위에 0.5G 차
+- H/L: http://m.live.sports.media.daum.net/video/kbo/212531/214830
+- H/L: http://m.sports.naver.com/video.nhn?id=203975
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/212531/214728
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/212531/214783
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/212531/214827
+- Full: 
+- 주요장면'홈런+2루타' 김태균, 장타율 올리며 팀 승리 공헌
+  - http://m.sports.naver.com/video.nhn?id=203978
+- [MVP] '홈런 포함 2안타 2타점+100% 출루' 양성우
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214843
+- [라인업] 한화 vs 넥센, 6월 28일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214685
+- '어느새 시즌 17호' 로사리오 선취 투런 홈런 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214694
+- 장민석 흐름 계속 이어가는 1타점 2루타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214700
+- '홈런 치는 1번 타자' 정근우 좌월 투런포 작렬 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214703
+- 김태균 호쾌한 스윙으로 만들어낸 솔로 홈런 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214719
+- '어디까지 날아갔게?' 양성우 큼지막한 솔로포 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214722
+- '뭘 해도 되는 날' 공이 송은범 글러브 속으로 쏙! / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214737
+- '궁합이 척척' 송은범의 공+차일목 프레이밍 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214742
+- '운수가 좋다더니' 송은범 7점 차 리드 중에 강판 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214752
+- 서건창 희생플라이 이후 송광민 실책으로 2득점 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214757
+- 장민석 중요한 순간 터진 1타점 2루타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214762
+- 대타 김경언, 삼진 위기 넘기고 2타점 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214766
+- 채태인 우중간 가르는 1타점 적시 2루타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214777
+- '쉽게 점수 내는 한화' 양성우 1타점 희생플라이 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214788
+- '나도 쳤어' 차일목 승부의 쐐기를 박는 투런포 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214791
+- '독수리 오형제' 한화 이글스 2,589일 만에 1경기 5홈런
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214826
+- '각도 큰 변화구?' 걸그룹 다이아 채연 시구-유니스 시타
+  - http://m.live.sports.media.daum.net/video/kbo/212531/214681
+
 
