@@ -213,3 +213,27 @@
   - http://m.sports.naver.com/video.nhn?id=203978
 - [MVP] '홈런 포함 2안타 2타점+100% 출루' 양성우
   - http://m.live.sports.media.daum.net/video/kbo/212531/214843
+
+### 2016-07-06 [한화 13-2 SK] '팀 최다 타이 13득점' 한화, SK 꺾고 3연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/215620/216907
+- H/L: http://m.sports.naver.com/video.nhn?id=206280
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/215620/216814
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/215620/216863
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/215620/216909
+- Full: http://m.sports.naver.com/video.nhn?id=206295
+- 주요장면 이성열-정근우, 연속 적시타로 4타점 합작
+  - http://m.sports.naver.com/video.nhn?id=206231
+- [MVP] '5⅔이닝 2실점' SK에 강한 장민재
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216912
+
+### 2016-07-07 [한화 14-4 SK] '8회 11득점 폭발' 한화, SK 꺾고 2연승 질주
+- H/L: http://m.live.sports.media.daum.net/video/kbo/215625/217243
+- H/L: http://m.sports.naver.com/video.nhn?id=206643
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/215625/217110
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/215625/217165
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/215625/217239
+- Full: 
+- 주요장면 '오늘도 화끈하게 넘겼다' 로사리오, 오늘 경기 승리의 주역
+  - http://m.sports.naver.com/video.nhn?id=206644
+- [MVP] '다이너마이트 타선의 4번 타자' 한화 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217259

@@ -1498,4 +1498,125 @@
 - '각도 큰 변화구?' 걸그룹 다이아 채연 시구-유니스 시타
   - http://m.live.sports.media.daum.net/video/kbo/212531/214681
 
+### 2016-07-06 [한화 13-2 SK] '팀 최다 타이 13득점' 한화, SK 꺾고 3연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/215620/216907
+- H/L: http://m.sports.naver.com/video.nhn?id=206280
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/215620/216814
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/215620/216863
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/215620/216909
+- Full: http://m.sports.naver.com/video.nhn?id=206295
+- 주요장면 이성열-정근우, 연속 적시타로 4타점 합작
+  - http://m.sports.naver.com/video.nhn?id=206231
+- [MVP] '5⅔이닝 2실점' SK에 강한 장민재
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216912
+- '팀이 사람을 바꾸다' 김성근 감독의 표정 변화
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216806
+- [라인업] 한화 vs SK, 7월 6일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216780
+- 이용규 과감한 홈 대시 vs 김성현 강한 어깨 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216775
+- 윤희상 선두타자 출루 허용 후 위력적인 피칭 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216787
+- 장민재 위기 극복하는 병살 유도로 이닝 종료 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216790
+- 이용규 선취점 뽑아내는 빠른 발 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216795
+- '참는 게 신기' 양성우 볼넷 골라내며 추가 득점 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216801
+- 정의윤 한 점 추격하는 1타점 외야플라이 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216811
+- 정의윤, 송광민 타구 지우는 점프 캐치 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216815
+- 장민재 안정적인 마운드 운영, 2K 삼자범퇴 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216820
+- 김경언 달아나는 1타점 적시타 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216823
+- '그것이 알고 싶다.' 이재원 3루 선택의 결과 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216829
+- 이성열 모든 주자 불러들이는 싹쓸이 3루타 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216914
+- 정근우 빅이닝 만들어낸 1타점 적시타 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216837
+- 장민재 승리투수 요건 충족시킨 삼자범퇴 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216842
+- 차일목 격차 벌리는 2타점 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216849
+- 최승준 뜨거운 타격감으로 오늘도 솔로 홈런 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216860
+- 송광민 장타+이용규 빠른 발로 1득점 추가 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216866
+- 김태균, 송광민 불러들이는 1타점 적시타 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216868
+- '자비란 없다' 로사리오 투런 홈런 작렬 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216874
+- 정대훈 깔끔한 피칭, 세 타자로 경기 종료 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216906
+- 최승준 경기전 6월의 MVP 시상식
+  - http://m.live.sports.media.daum.net/video/kbo/215620/216783
+
+### 2016-07-07 [한화 14-4 SK] '8회 11득점 폭발' 한화, SK 꺾고 2연승 질주
+- H/L: http://m.live.sports.media.daum.net/video/kbo/215625/217243
+- H/L: http://m.sports.naver.com/video.nhn?id=206643
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/215625/217110
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/215625/217165
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/215625/217239
+- Full: 
+- 주요장면 '오늘도 화끈하게 넘겼다' 로사리오, 오늘 경기 승리의 주역
+  - http://m.sports.naver.com/video.nhn?id=206644
+- [MVP] '다이너마이트 타선의 4번 타자' 한화 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217259
+- [라인업] 한화 vs SK, 7월 7일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217078
+- 켈리 안타 허용에도 무실점 이닝 종료 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217074
+- 송은범 출발 좋은 삼자범퇴 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217087
+- 켈리의 보크 허용, 선취 타점 올리는 양성우 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217089
+- 강경학, 양성우 불러들이며 한 점 추가 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217091
+- 3루에서 걸린 정의윤, 어렵사리 한 점 추격하는 이재원 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217103
+- 최승준, 5G 연속 홈런을 잇는 역전 스리런포 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217117
+- 2루에 있는 최정 잡아내는 송은범 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217131
+- 김용희 감독의 분노, 최정에서 최정민으로 교체 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217138
+- 켈리, 한화 타선 봉쇄하는 삼자범퇴 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217142
+- 합의 판정 끝에 더블플레이 성공하는 강경학-송은범 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217153
+- 날카로운 제구력으로 삼진 잡는 켈리 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217160
+- 실점 막는 로사리오, 권혁 삼진으로 마무리 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217170
+- '최고령 올스타의 위엄' 조인성, 추격 솔로포 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217177
+- '분업화란 무엇인가?' 권혁 2K 불꽃 피칭 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217185
+- '이해를 할 수가 없네' 마운드에서 난감한 켈리 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217193
+- '한 타자를 상대하고 내려가라고요?' 불만 표시하는 켈리 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217189
+- '한 타자 상대하는 게 규칙' 켈리 관련 정정하는 해설진
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217248
+- 위풍당당 김태균, 재역전 투런포 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217201
+- '오늘도 화끈하게 넘겼다' 투런포 날리는 로사리오 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217211
+- 빅 이닝 만드는 한화, 정근우의 환한 웃음 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217220
+- 2점포 송광민, 8회에만 세 번째 홈런 폭발 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217224
+- '빅빅빅이닝' 장민석-로사리오 연속 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217228
+- 심수창 무실점으로 경기 마무리 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217242
+- '역대 최다 한 이닝 11안타 타이' 한화 약속의 8회
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217255
+- 구새봄 아나운서가 전하는 이용규의 대기록 달성 여부
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217082
+- 분위기 전환 위해 선수단 집합시킨 김강민
+  - http://m.live.sports.media.daum.net/video/kbo/215625/217148
 
