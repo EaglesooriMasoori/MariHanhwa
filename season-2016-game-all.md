@@ -1560,7 +1560,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/215625/217110
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/215625/217165
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/215625/217239
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=206658
 - 주요장면 '오늘도 화끈하게 넘겼다' 로사리오, 오늘 경기 승리의 주역
   - http://m.sports.naver.com/video.nhn?id=206644
 - [MVP] '다이너마이트 타선의 4번 타자' 한화 김태균
