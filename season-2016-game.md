@@ -237,3 +237,15 @@
   - http://m.sports.naver.com/video.nhn?id=206644
 - [MVP] '다이너마이트 타선의 4번 타자' 한화 김태균
   - http://m.live.sports.media.daum.net/video/kbo/215625/217259
+
+### 2016-07-08 [한화 6-3 삼성] '송광민 결승포' 한화, 삼성 꺾고 92일 만에 탈꼴찌
+- H/L: http://m.live.sports.media.daum.net/video/kbo/215630/217586
+- H/L: http://m.sports.naver.com/video.nhn?id=206984
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/215630/217457
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/215630/217518
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/215630/217588
+- Full: http://m.sports.naver.com/video.nhn?id=207034
+- 주요장면 '치열한 양 팀 작전' 김성근-류중일 감독 승자는?
+  - http://m.sports.naver.com/video.nhn?id=206936
+- [MVP] 대혈투 삼성과 한화, 10번째 만남은 송광민이 접수
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217593

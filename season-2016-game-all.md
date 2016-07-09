@@ -1620,3 +1620,59 @@
 - 분위기 전환 위해 선수단 집합시킨 김강민
   - http://m.live.sports.media.daum.net/video/kbo/215625/217148
 
+### 2016-07-08 [한화 6-3 삼성] '송광민 결승포' 한화, 삼성 꺾고 92일 만에 탈꼴찌
+- H/L: http://m.live.sports.media.daum.net/video/kbo/215630/217586
+- H/L: http://m.sports.naver.com/video.nhn?id=206984
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/215630/217457
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/215630/217518
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/215630/217588
+- Full: http://m.sports.naver.com/video.nhn?id=207034
+- 주요장면 '치열한 양 팀 작전' 김성근-류중일 감독 승자는?
+  - http://m.sports.naver.com/video.nhn?id=206936
+- [MVP] 대혈투 삼성과 한화, 10번째 만남은 송광민이 접수
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217593
+- [라인업] 삼성 vs 한화, 7월 8일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217416
+- '카스활명수' 카스티요 2루타 허용에도 무실점 마무리 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217410
+- 잔루는 1-3루, 실점 허용하지 않는 카스티요 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217425
+- '안녕하세요' 예의 바른 로사리오, 선제 투런포 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217430
+- 우동균 실점 위기 벗어나는 환상 캐치 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217437
+- '강속구가 다리에..' 이승엽 몸에 맞는 볼 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217441
+- 무사 만루, 최소 실점으로 막아낸 카스티요와 내야진 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217450
+- 강경학의 나쁜 송구 책임지는 로사리오의 캐치 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217462
+- 157Km 강속구 앞세운 카스티요, 1K 삼자범퇴 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217469
+- '여권을 뺏어야 할 듯..' 로사리오 연타석 홈런포 가동 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217479
+- '안타 하나, 내가 막았어요' 정근우 환상 수비 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217483
+- 다시 한 점차로 추격하는 최재원의 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217495
+- 카스티요 강판, 권혁 밀어내기로 동점 허용 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217505
+- '작전 대 작전' 실점 허용하지 않는 삼성 불펜 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217525
+- '감독님 마음은 바운스 바운스' 송창식 만루 위기 탈출 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217542
+- '불금엔 마리한화' 송광민 역전 스리런포 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217550
+- '한 템포 빠른 등판' 정우람 1K 삼자범퇴 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217567
+- 정우람 무실점 경기 마무리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217584
+- 남대전고등학교 재학생들 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217405
+- 박신영 아나운서가 전하는 로사리오의 기록들
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217411
+- '전쟁 준비?' 태극기 흔드는 대전 관중
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217420
+- '무릎 타박상' 이승엽, 사구 통증으로 교체
+  - http://m.live.sports.media.daum.net/video/kbo/215630/217487
+
