@@ -249,3 +249,15 @@
   - http://m.sports.naver.com/video.nhn?id=206936
 - [MVP] 대혈투 삼성과 한화, 10번째 만남은 송광민이 접수
   - http://m.live.sports.media.daum.net/video/kbo/215630/217593
+
+### 2016-07-10 [한화 10-6 삼성] '영광의 시대는 끝!' 한화 4연승, 삼성 최하위
+- H/L: http://m.live.sports.media.daum.net/video/kbo/215671/218317
+- H/L: http://m.sports.naver.com/video.nhn?id=207711
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/215671/218158
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/215671/218244
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/215671/218314
+- Full: 
+- 주요장면 '리드오프 정근우' 팀 공격을 이끈 한화 이글스의 캡틴
+  - http://m.sports.naver.com/video.nhn?id=207716
+- [MVP] '잃었던 것 찾아오는 중' 한화 이끈 캡틴 정근우
+  - http://m.live.sports.media.daum.net/video/kbo/215671/218325
