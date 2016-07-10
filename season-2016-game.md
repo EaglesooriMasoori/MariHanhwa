@@ -256,7 +256,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/215671/218158
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/215671/218244
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/215671/218314
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=207742
 - 주요장면 '리드오프 정근우' 팀 공격을 이끈 한화 이글스의 캡틴
   - http://m.sports.naver.com/video.nhn?id=207716
 - [MVP] '잃었던 것 찾아오는 중' 한화 이끈 캡틴 정근우
