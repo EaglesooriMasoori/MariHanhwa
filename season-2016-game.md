@@ -261,3 +261,15 @@
   - http://m.sports.naver.com/video.nhn?id=207716
 - [MVP] '잃었던 것 찾아오는 중' 한화 이끈 캡틴 정근우
   - http://m.live.sports.media.daum.net/video/kbo/215671/218325
+
+### 2016-07-13 [한화 7-5 LG] '로사리오 결승타' 한화, LG에 극적인 역전승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/216727/218986
+- H/L: http://m.sports.naver.com/video.nhn?id=208436
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/216727/218859
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/216727/218928
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/216727/218985
+- Full: 
+- 주요장면 '그라운드 홈런?' 김경언, 홈에서 합의 판정 요구
+  - http://m.sports.naver.com/video.nhn?id=208314
+- [MVP] '킹사리오 혹은 로요미' 두 얼굴의 로사리오
+  - http://m.live.sports.media.daum.net/video/kbo/216727/219016

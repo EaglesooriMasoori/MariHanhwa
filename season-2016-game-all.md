@@ -1736,3 +1736,65 @@
 - 박지영 아나운서가 말하는 대타 이성열의 활약
   - http://m.live.sports.media.daum.net/video/kbo/215671/218107
 
+### 2016-07-13 [한화 7-5 LG] '로사리오 결승타' 한화, LG에 극적인 역전승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/216727/218986
+- H/L: http://m.sports.naver.com/video.nhn?id=208436
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/216727/218859
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/216727/218928
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/216727/218985
+- Full: 
+- 주요장면 '그라운드 홈런?' 김경언, 홈에서 합의 판정 요구
+  - http://m.sports.naver.com/video.nhn?id=208314
+- [MVP] '킹사리오 혹은 로요미' 두 얼굴의 로사리오
+  - http://m.live.sports.media.daum.net/video/kbo/216727/219016
+- [인터뷰] LG 투수 데이비드 허프, KBO리그 향한 출사표
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218806
+- '가려도 귀엽다' 배우 박보영 잠실야구장 나들이
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218868
+- [라인업] 한화 vs LG, 7월 13일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218830
+- '인사이드파크 홈런?' 홈 쇄도 김경언, 합의 판정 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218835
+- '아쉽다, 그라운드 홈런' 김경언 선취 2타점 적시타 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218826
+- 리드 잡고 여유 있는 송은범, 1K 삼자범퇴 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218844
+- '용큐 놀이 말고 일목 놀이' 소사 괴롭힌 차일목 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218853
+- 송광민, 히메네스 잡아내는 다이빙캐치 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218848
+- 송은범 단 8구만에 이닝 마무리 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218861
+- '악! 내 옆구리..' 수비 후 고통 호소하는 정근우 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218871
+- LG 세대교체의 중심 채은성, 1타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218877
+- '오늘도 역전!' 오지환 역전 2타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218884
+- '희생플라이+밀어내기 볼넷' 점수 추가하는 정주현-이천웅 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218895
+- '5득점 빅이닝에 싱글벙글' 역전 성공한 LG / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218907
+- '반격의 아이콘' 동점 만드는 정근우-이용규-송광민 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218913
+- 강경학 감각적인 송구, 훈련으로 만든 호수비 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218920
+- '어제 이어 오늘도 등판' 장민재 1K 삼자범퇴 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218936
+- '역대 10호, 개인 통산 300도루' 허를 찌른 박용택 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218944
+- '한화 초강수' 카스티요 구원 등판, 무실점 마무리 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218950
+- '진루타와 역전타 주인공' 김경언과 로사리오 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218967
+- 대주자 교체 대성공! 로사리오 역전 2타점 2루타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218960
+- '실점은 NO!' 카스티요 2루타 허용에도 무실점 피칭 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/219000
+- 혼신의 역투 카스티요, 경기 마무리 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218989
+- 한화 패배 설욕, 김성근 감독과 선수단 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/216727/218996
+- '한화-LG전 직관 왔어요' 유쾌한 야구 관람
+  - http://m.live.sports.media.daum.net/video/kbo/216727/219019
+
