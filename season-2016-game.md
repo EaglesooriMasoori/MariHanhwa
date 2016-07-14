@@ -280,7 +280,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/216732/219200
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/216732/219274
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/216732/219326
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=208626
 - 주요장면 '주장의 품격' 오늘 경기 승리의 일등공신 정근우
   - http://m.sports.naver.com/video.nhn?id=208621
 - [MVP] '3안타 샤샤샤' 정근우, 후반기 반등 예고하는 맹활약
