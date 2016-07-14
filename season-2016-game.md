@@ -268,8 +268,21 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/216727/218859
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/216727/218928
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/216727/218985
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=208459
 - 주요장면 '그라운드 홈런?' 김경언, 홈에서 합의 판정 요구
   - http://m.sports.naver.com/video.nhn?id=208314
 - [MVP] '킹사리오 혹은 로요미' 두 얼굴의 로사리오
   - http://m.live.sports.media.daum.net/video/kbo/216727/219016
+
+### 2016-07-14 [한화 7-4 LG] '정근우 3안타' 한화, LG 꺾고 단독 7위로 점프
+- H/L: http://m.live.sports.media.daum.net/video/kbo/216732/219332
+- H/L: http://m.sports.naver.com/video.nhn?id=208610
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/216732/219200
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/216732/219274
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/216732/219326
+- Full: 
+- 주요장면 '주장의 품격' 오늘 경기 승리의 일등공신 정근우
+  - http://m.sports.naver.com/video.nhn?id=208621
+- [MVP] '3안타 샤샤샤' 정근우, 후반기 반등 예고하는 맹활약
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219344
+

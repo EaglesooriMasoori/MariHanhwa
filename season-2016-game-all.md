@@ -1742,7 +1742,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/216727/218859
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/216727/218928
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/216727/218985
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=208459
 - 주요장면 '그라운드 홈런?' 김경언, 홈에서 합의 판정 요구
   - http://m.sports.naver.com/video.nhn?id=208314
 - [MVP] '킹사리오 혹은 로요미' 두 얼굴의 로사리오
@@ -1797,4 +1797,72 @@
   - http://m.live.sports.media.daum.net/video/kbo/216727/218996
 - '한화-LG전 직관 왔어요' 유쾌한 야구 관람
   - http://m.live.sports.media.daum.net/video/kbo/216727/219019
+
+### 2016-07-14 [한화 7-4 LG] '정근우 3안타' 한화, LG 꺾고 단독 7위로 점프
+- H/L: http://m.live.sports.media.daum.net/video/kbo/216732/219332
+- H/L: http://m.sports.naver.com/video.nhn?id=208610
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/216732/219200
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/216732/219274
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/216732/219326
+- Full: 
+- 주요장면 '주장의 품격' 오늘 경기 승리의 일등공신 정근우
+  - http://m.sports.naver.com/video.nhn?id=208621
+- [MVP] '3안타 샤샤샤' 정근우, 후반기 반등 예고하는 맹활약
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219344
+- 전반기 7위로 마무리, 김성근 감독과 선수단 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219329
+- [인터뷰] 서캠프 경기 전 인터뷰 '이글스 파이팅!'
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219132
+- '여기가 이대호의 나라입니까?' KBO리그 첫 등판하는 서캠프
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219152
+- '순발력 살아있네' 아찔한 타구 피하는 윤재국 코치
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219166
+- 강한 파울 타구에 맞아도 의연한 심판
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219270
+- 외국인 선수에겐 컬처 쇼크 '최강한화 vs 무적LG'
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219293
+- 한화에서 애교를 담당하고 있는 로사리오
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219306
+- [라인업] 한화 vs LG, 7월 14일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219146
+- '4번 타자는 타점으로 말한다' 김태균 선취 2타점 2루타 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219140
+- '주키치 연상시킨 독특한 투구폼' 서캠프 KBO리그 첫 투구 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219162
+- 정근우 '역대 5번째' 11년 연속 100안타 달성 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219168
+- 류제국의 사구 하나, 추가 2실점 하며 조기 강판 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219174
+- '순간 공을 깜박..' 김경언 집념의 타구 처리 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219181
+- 몸 풀린 서캠프, 1K 삼자범퇴 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219188
+- '서캠프 나랑 붙자' 허프 예정에 없던 첫 등판 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219202
+- 강경학 합의판정 끝에 시즌 첫 3루타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219205
+- 강경학 불러들이는 정근우의 적시 2루타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219214
+- '비디오로 확인해주세요' 정근우, 결과는 도루 아웃 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219223
+- 이용규, 7년 연속 100안타+개인 통산 300도루 달성 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219228
+- 잔루는 1-2루, 실점 허용하지 않는 서캠프 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219238
+- 퍼 올리는 로사리오, 잘 잡아내는 이천웅 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219243
+- 실점하는 서캠프, 승리투수 조건 앞두고 강판 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219250
+- 송창식 폭투, 송광민 실책으로 추가 실점 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219257
+- '시즌 12호' 정근우, 진해수 상대 도망가는 홈런 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219265
+- 좋은 송구로 이병규 잡아낸 차일목 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219277
+- 로사리오 잠실 하늘 가르는 시즌 22호 홈런 작렬 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219284
+- '끝까지 긴장해라' 박용택 2타점 적시타 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219318
+- '저 메이저리그 출신입니다' 로사리오 승리 지키는 환상 수비 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/216732/219323
 
