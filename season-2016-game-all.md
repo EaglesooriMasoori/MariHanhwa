@@ -1866,3 +1866,58 @@
 - '저 메이저리그 출신입니다' 로사리오 승리 지키는 환상 수비 / 9회말
   - http://m.live.sports.media.daum.net/video/kbo/216732/219323
 
+### 2016-07-19 [한화 17-7 KT] '시즌 팀 최다 득점' 한화, kt 꺾고 3연승 질주
+- H/L: http://m.live.sports.media.daum.net/video/kbo/219043/220429
+- H/L: http://m.sports.naver.com/video.nhn?id=211306
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/219043/220349
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/219043/220378
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/219043/220445
+- Full: http://m.sports.naver.com/video.nhn?id=211317
+- 주요장면 '헤헤 또 만루 찬스야?' 로사리오, 기회를 놓치지 않고 적시타 
+  - http://m.sports.naver.com/video.nhn?id=211272
+- [MVP] '엄지 척! 공수 맹활약' 강경학
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220452
+- [라인업] kt vs 한화, 7월 19일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220227
+- 이진영 인정 2루타로 앞서나가는 kt / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220221
+- 김경언 집념으로 잡아낸 파울 타구 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220241
+- 양성우, 새로운 외인 투수 상대로 3타점 싹쓸이 안타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220234
+- 'KBO 만만치 않네' 로위 폭투로 1실점 허용 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220238
+- 정근우-송광민 점수 차 벌리는 2타점 합작 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220259
+- 로위, 김태균 맞추는 볼에 '미안해~' / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220256
+- 'KBO는 처음이지?' 로위 강판시키는 로사리오 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220262
+- 송광민 빨랫줄 타구 지우는 호수비 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220267
+- '겸사 겸사' 팬들과 교감하는 로사리오 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220272
+- '카스티요 분석 완료?' 4타점 몰아치는 kt / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220280
+- 송광민의 안쓰러운 수난시대 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220302
+- 정근우 자신감 넘치는 1타점 적시 2루타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220291
+- '팀의 주장' 박경수 추격하는 2타점 적시타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220317
+- 정근우-로사리오 팬 환호케 하는 3타점 합작 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220338
+- '한 경기 최다 타점 기록' 양성우 2타점 적시타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220346
+- 강경학, 김성근 감독 박수받는 호수비 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220370
+- 강경학 주자 모두 쓸어 담는 3타점 적시타 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220375
+- 강경학 내야를 지배하는 멋진 수비 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220403
+- 심수창 아웃카운트 3개 잡고 경기 종료 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220423
+- kt vs 한화, 국민의례(대전고등학교 학생)
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220210
+- 해설 도중 말문이 막힌 해설 위원 '어디서 저런 사진을..'
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220356

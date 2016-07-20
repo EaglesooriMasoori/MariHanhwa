@@ -286,3 +286,15 @@
 - [MVP] '3안타 샤샤샤' 정근우, 후반기 반등 예고하는 맹활약
   - http://m.live.sports.media.daum.net/video/kbo/216732/219344
 
+### 2016-07-19 [한화 17-7 KT] '시즌 팀 최다 득점' 한화, kt 꺾고 3연승 질주
+- H/L: http://m.live.sports.media.daum.net/video/kbo/219043/220429
+- H/L: http://m.sports.naver.com/video.nhn?id=211306
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/219043/220349
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/219043/220378
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/219043/220445
+- Full: http://m.sports.naver.com/video.nhn?id=211317
+- 주요장면 '헤헤 또 만루 찬스야?' 로사리오, 기회를 놓치지 않고 적시타 
+  - http://m.sports.naver.com/video.nhn?id=211272
+- [MVP] '엄지 척! 공수 맹활약' 강경학
+  - http://m.live.sports.media.daum.net/video/kbo/219043/220452
+
