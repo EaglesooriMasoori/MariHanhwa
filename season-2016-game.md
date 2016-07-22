@@ -298,3 +298,14 @@
 - [MVP] '엄지 척! 공수 맹활약' 강경학
   - http://m.live.sports.media.daum.net/video/kbo/219043/220452
 
+### 2016-07-21 [한화 8-1 KT] '김태균 쐐기포' 한화, kt 꺾고 4연속 위닝시리즈
+- H/L: http://m.live.sports.media.daum.net/video/kbo/219053/221110
+- H/L: http://m.sports.naver.com/video.nhn?id=214979
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/219053/221074
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/219053/221093
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/219053/221114
+- Full: http://m.sports.naver.com/video.nhn?id=215066
+- 주요장면 유한준의 장타를 잡아내는 김경언의 슈퍼 캐치 
+  - http://m.sports.naver.com/video.nhn?id=213442
+- [MVP] '이글스의 4번 타자' 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221132

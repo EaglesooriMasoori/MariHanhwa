@@ -1921,3 +1921,51 @@
   - http://m.live.sports.media.daum.net/video/kbo/219043/220210
 - 해설 도중 말문이 막힌 해설 위원 '어디서 저런 사진을..'
   - http://m.live.sports.media.daum.net/video/kbo/219043/220356
+
+### 2016-07-21 [한화 8-1 KT] '김태균 쐐기포' 한화, kt 꺾고 4연속 위닝시리즈
+- H/L: http://m.live.sports.media.daum.net/video/kbo/219053/221110
+- H/L: http://m.sports.naver.com/video.nhn?id=214979
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/219053/221074
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/219053/221093
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/219053/221114
+- Full: http://m.sports.naver.com/video.nhn?id=215066
+- 주요장면 유한준의 장타를 잡아내는 김경언의 슈퍼 캐치 
+  - http://m.sports.naver.com/video.nhn?id=213442
+- [MVP] '이글스의 4번 타자' 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221132
+- '탄생 100일 기념' 수리의 깜찍한 사이드암 시구
+  - http://m.live.sports.media.daum.net/video/kbo/219053/220979
+- 뽀뽀도 서슴지 않는 허구연 해설위원의 손주 사랑
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221088
+- 카스티요 허당끼 가득한 모습
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221011
+- [라인업] kt vs 한화, 7월 21일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/219053/220987
+- 송광민 백핸드 캐치 후 깔끔한 송구 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/219053/220984
+- '긁히는 날' 송은범 2K 삼자범퇴 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/219053/220995
+- 무사 만루 위기 모면하는 피노 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221009
+- 박기혁 군더더기 없는 호수비 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221022
+- 김경언 팽팽한 균형 깨는 1타점 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221019
+- '쿵쾅 쿵쾅' 바람처럼 빠르게 홈 밟는 김태균 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221028
+- '희비 교차' 마르테 실투 받아친 동점 솔로포 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221032
+- 김경언 두 번 감상해도 멋진 호수비 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221034
+- 송광민 2아웃에서 만들어낸 2타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221046
+- 김태균, 야신의 박수 이끌어내는 스리런포 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221050
+- 차일목 점수 차 크게 벌리는 2타점 적시타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221067
+- 송창식 날카로운 제구력으로 2K 삼자범퇴 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221082
+- 김연훈 합의 판정 무색하게 만든 호수비 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221109
+- 정대훈, 수비 도움 받으며 경기 마무리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/219053/221108
