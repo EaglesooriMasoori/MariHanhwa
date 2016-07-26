@@ -309,3 +309,15 @@
   - http://m.sports.naver.com/video.nhn?id=213442
 - [MVP] '이글스의 4번 타자' 김태균
   - http://m.live.sports.media.daum.net/video/kbo/219053/221132
+
+### 2016-07-24 [한화 8-1 롯데] '카스티요 역투' 한화, 롯데전 3연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/219068/222157
+- H/L: http://m.sports.naver.com/video.nhn?id=215897
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/219068/222015
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/219068/222130
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/219068/222160
+- Full: http://m.sports.naver.com/video.nhn?id=215913
+- 주요장면 '몸을 사리지 않는 플레이' 양성우, 완벽한 호수비 이후 교체 
+  - http://m.sports.naver.com/video.nhn?id=215855
+- [MVP] '8이닝 1실점 완벽투' 카스티요
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222196

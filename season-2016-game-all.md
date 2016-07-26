@@ -1969,3 +1969,57 @@
   - http://m.live.sports.media.daum.net/video/kbo/219053/221109
 - 정대훈, 수비 도움 받으며 경기 마무리 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/219053/221108
+
+### 2016-07-24 [한화 8-1 롯데] '카스티요 역투' 한화, 롯데전 3연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/219068/222157
+- H/L: http://m.sports.naver.com/video.nhn?id=215897
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/219068/222015
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/219068/222130
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/219068/222160
+- Full: http://m.sports.naver.com/video.nhn?id=215913
+- 주요장면 '몸을 사리지 않는 플레이' 양성우, 완벽한 호수비 이후 교체 
+  - http://m.sports.naver.com/video.nhn?id=215855
+- [MVP] '8이닝 1실점 완벽투' 카스티요
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222196
+- '5인 5색' 기장, 달산초등학교 학생들의 시구
+  - http://m.live.sports.media.daum.net/video/kbo/219068/221963
+- [라인업] 한화 vs 롯데, 7월 24일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/219068/221986
+- 맥스웰 넓은 수비범위 보여주는 호수비 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/221967
+- '선취점은 내가' 양성우 2타점 적시타 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/221975
+- 나경민, 2루타성 타구 훔치는 나이스캐치 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/221978
+- 송광민 어려운 타구 처리하는 좋은 수비  / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/219068/221984
+- 카스티요 상대 타선 압도하는 2K 삼자범퇴 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/219068/221991
+- '살아나는 타격감' 김문호 1타점 적시타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/219068/221996
+- 두 경기 연속 홈런, 김경언 호쾌한 솔로포 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222003
+- '걸렸어' 허무하게 아웃되는 로사리오 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222025
+- 로사리오, 견제사 후 신성현으로 교체 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222038
+- 노경은 밀어내기 허용하며 1점 헌납 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222048
+- '갓경언 모드' 김경언 2타점 적시타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222053
+- 차일목 점수 차 벌리는 1타점 적시타 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222063
+- '보는이도 아찔한 강속구' 강민호 몸에 맞는 볼 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222067
+- 정근우이기에 가능한 주루플레이 센스 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222097
+- 정근우가 차린 밥상, 김태균의 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222082
+- 양성우 온몸을 불사르는 수비, 부상 염려 교체  / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222092
+- 카스티요 중심 타선 무력화 시키는 KKK / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222105
+- '이건 정말 아닙니다' 김진욱 해설을 화나게 만든 이정민 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222115
+- 강경학 어려운 바운드 처리하는 수비 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/219068/222143
