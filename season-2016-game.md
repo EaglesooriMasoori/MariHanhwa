@@ -321,3 +321,15 @@
   - http://m.sports.naver.com/video.nhn?id=215855
 - [MVP] '8이닝 1실점 완벽투' 카스티요
   - http://m.live.sports.media.daum.net/video/kbo/219068/222196
+
+### 2016-07-27 [한화 8-0 SK] 'SK 킬러, 장민재 4승 역투' 한화, SK에 완승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/220152/222905
+- H/L: http://m.sports.naver.com/video.nhn?id=216562
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/220152/222783
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/220152/222860
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/220152/222907
+- Full: http://m.sports.naver.com/video.nhn?id=216590
+- 주요장면 '역시 SK 킬러' 장민재, 무실점 호투 펼친 한화의 마당쇠
+  - http://m.sports.naver.com/video.nhn?id=216568
+- [MVP] '이제는 완성형 타자' 3안타(1홈런) 4타점 송광민
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222922

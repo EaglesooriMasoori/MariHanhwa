@@ -2023,3 +2023,56 @@
   - http://m.live.sports.media.daum.net/video/kbo/219068/222115
 - 강경학 어려운 바운드 처리하는 수비 / 9회말
   - http://m.live.sports.media.daum.net/video/kbo/219068/222143
+
+### 2016-07-27 [한화 8-0 SK] 'SK 킬러, 장민재 4승 역투' 한화, SK에 완승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/220152/222905
+- H/L: http://m.sports.naver.com/video.nhn?id=216562
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/220152/222783
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/220152/222860
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/220152/222907
+- Full: http://m.sports.naver.com/video.nhn?id=216590
+- 주요장면 '역시 SK 킬러' 장민재, 무실점 호투 펼친 한화의 마당쇠
+  - http://m.sports.naver.com/video.nhn?id=216568
+- [MVP] '이제는 완성형 타자' 3안타(1홈런) 4타점 송광민
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222922
+- '더 잘 던질 수 있었는데' 켈리 인터뷰
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222715
+- 박정진 600경기 출장 기념 시상식
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222718
+- '뭘 쏘는 거야?' 덕아웃 분위기를 끌어올리는 카스티요
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222731
+- [라인업] SK vs 한화, 7월 27일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222729
+- 장민재 날카로운 구위로 1K 삼자범퇴 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222778
+- '34,000번째 안타는 홈런으로' 로사리오 솔로 홈런 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222749
+- 라라 당황해서 저지른 실책, 신성현 3루 진루 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222751
+- 차일목 상대를 흔드는 1타점 적시 2루타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222760
+- 김강민 담장과 싸우며 공을 잡아내는 호수비 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222796
+- 신성현 홈런-파울 관련 합의판정 요청 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222791
+- 신성현 볼넷 출루가 무산되는 견제사 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222793
+- 장민재 강습 타구를 잡아내는 호수비 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222806
+- '흔들리는 수비진' 고메즈 실책, 라라 보크 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222815
+- 송광민, 라라를 강판시키는 1타점 적시타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222821
+- 김태균-김경언 멀찍이 달아나는 2타점 합작 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222823
+- '팀 내 최다승 투수' 송창식 50경기째 등판 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222835
+- '왜 안타가 아니었어요' 정근우 분노의 안타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222845
+- 송광민 맞는 순간 직감할 수 있었던 스리런 홈런 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222856
+- 김재현 끝까지 따라가서 잡아내는 캐치 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222866
+- 박정진 중심타선을 틀어막는 삼자범퇴 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/220152/222899
+
