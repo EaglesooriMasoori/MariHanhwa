@@ -333,3 +333,15 @@
   - http://m.sports.naver.com/video.nhn?id=216568
 - [MVP] '이제는 완성형 타자' 3안타(1홈런) 4타점 송광민
   - http://m.live.sports.media.daum.net/video/kbo/220152/222922
+
+### 2016-07-28 [한화 12-8 SK] '이태양 첫 승+홈런 3방' 한화, SK에 위닝시리즈
+- H/L: http://m.live.sports.media.daum.net/video/kbo/220157/223256
+- H/L: http://m.sports.naver.com/video.nhn?id=216829
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/220157/223159
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/220157/223205
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/220157/223252
+- Full: http://m.sports.naver.com/video.nhn?id=216855
+- 주요장면 11점 리드 상황에서 나온 김태균의 시즌 첫 도루
+  - http://m.sports.naver.com/video.nhn?id=216791
+- [MVP] 만루포로 자신의 시즌 최다 홈런 자축한 정근우
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223267

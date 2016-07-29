@@ -2076,3 +2076,61 @@
 - 박정진 중심타선을 틀어막는 삼자범퇴 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/220152/222899
 
+### 2016-07-28 [한화 12-8 SK] '이태양 첫 승+홈런 3방' 한화, SK에 위닝시리즈
+- H/L: http://m.live.sports.media.daum.net/video/kbo/220157/223256
+- H/L: http://m.sports.naver.com/video.nhn?id=216829
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/220157/223159
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/220157/223205
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/220157/223252
+- Full: http://m.sports.naver.com/video.nhn?id=216855
+- 주요장면 11점 리드 상황에서 나온 김태균의 시즌 첫 도루
+  - http://m.sports.naver.com/video.nhn?id=216791
+- [MVP] 만루포로 자신의 시즌 최다 홈런 자축한 정근우
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223267
+- '초구는 내 본능' 한화 송광민 경기 전 인터뷰
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223099
+- [라인업] SK vs 한화, 7월 28일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223101
+- 2루타 허용한 이태양, 실점 없이 마무리 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223102
+- '언더핸드 극강' 이용규, 출루 후 도루 실패 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223110
+- '과감한 작전 영향일까?' 박종훈 폭투로 실점 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223116
+- '팔뚝은 희생한다' 부상 투혼 선보이는 송광민 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223122
+- '개인 최다 13홈런' 정근우, 박종훈 상대로 그랜드슬램 폭발 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223131
+- '통산 타점 단독 7위 등극' 김태균 투런포 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223137
+- '2G 연속 대포-24호 홈런' 로사리오 쐐기 스리런포 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223144
+- 한화 '2회 홈런쇼' 홈런 3방 포함 9득점 대폭발
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223190
+- 이태양, 이용규 환상 송구로 만루 위기 탈출 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223162
+- '희생플라이와 땅볼 타구' 점수 차 벌리는 송광민-김경언 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223168
+- 11점 차에서 나온 김태균 도루, 정근우의 사과 제스처 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223215
+- '역대 55호' 최정, 홈런으로 개인 통산 1200안타 달성 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223177
+- '13G만의 승리투수?' 이태양 2K 삼자범퇴 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223200
+- 최정, 최정용 불러들이는 1타점 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223212
+- 6이닝 2실점 호투 이태양, 정대훈과 교체 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223223
+- '4일 휴식' 정우람 등판, 최정민에게 적시타 허용 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223230
+- '인간승리' 정의윤, 10구 승부 끝에 스리런포 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223235
+- '대전 아이돌' 권혁 등판, KK 불꽃 피칭 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223245
+- 고메즈 몸에 맞는 공, 권혁 빠른 사과 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223248
+- 최정 2타점 적시타, 박정권 병살타로 경기 종료 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/220157/223257
+
+
+
