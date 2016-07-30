@@ -345,3 +345,28 @@
   - http://m.sports.naver.com/video.nhn?id=216791
 - [MVP] 만루포로 자신의 시즌 최다 홈런 자축한 정근우
   - http://m.live.sports.media.daum.net/video/kbo/220157/223267
+
+### 2016-07-29 [한화 9-8 두산] '김경언 11회 결승 홈런' 한화, 두산전 8연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/220162/223706
+- H/L: http://m.sports.naver.com/video.nhn?id=217118
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/220162/223530
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/220162/223623
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/220162/223687
+- 10~11: http://m.live.sports.media.daum.net/video/kbo/220162/223707
+- Full: http://m.sports.naver.com/video.nhn?id=217131
+- 주요장면 김태균, 자신의 1,600경기를 자축하는 대활약
+  - http://m.sports.naver.com/video.nhn?id=217115
+- [MVP] '대기록 2개+6타점' 대반격의 서막 알린 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/220162/223713
+
+### 2016-07-30 [한화 10-9 두산] '송광민 4안타+심수창 4승' 한화, 두산 꺾고 4연승 질주
+- H/L: http://m.live.sports.media.daum.net/video/kbo/220168/224063
+- H/L: http://m.sports.naver.com/video.nhn?id=217411
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/220168/223924
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/220168/224005
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/220168/224062
+- Full: 
+- 주요장면 '끈질긴 승부' 11구 승부 끝에 안타를 뽑아내는 이용규
+  - http://m.sports.naver.com/video.nhn?id=217346
+- [MVP] 개인 기록·팀 승리 챙긴 '욕심쟁이' 송광민
+  - http://m.live.sports.media.daum.net/video/kbo/220168/224064
