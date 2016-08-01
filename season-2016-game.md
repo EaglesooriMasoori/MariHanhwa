@@ -365,7 +365,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/220168/223924
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/220168/224005
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/220168/224062
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=217421
 - 주요장면 '끈질긴 승부' 11구 승부 끝에 안타를 뽑아내는 이용규
   - http://m.sports.naver.com/video.nhn?id=217346
 - [MVP] 개인 기록·팀 승리 챙긴 '욕심쟁이' 송광민
