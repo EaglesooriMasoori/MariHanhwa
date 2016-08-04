@@ -1352,7 +1352,7 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/210084/212322
 - Full: http://m.sports.naver.com/video.nhn?id=201706
 - 주요장면'주장하기 힘들다' 정근우, 공-수-주 맹활약 인성은 덤
-  - http://m.sports.naver.com/video.nhn?id=201686&type=GAMEID
+  - http://m.sports.naver.com/video.nhn?id=201686
 - [MVP] '벤치클리어링은 경기 일부분' 송은범, NC 연승 저지 호투
   - http://m.live.sports.media.daum.net/video/kbo/210084/212357
 - 김세희 아나운서가 전하는 NC의 팀 분위기
@@ -2289,4 +2289,65 @@
 - 김성근 감독 마운드 방문, 경기 끝내는 정우람 / 9회말
   - http://m.live.sports.media.daum.net/video/kbo/220168/224061
 
+### 2016-08-03 [한화 8-1 KIA] '송광민 4안타+이태양 2승' 한화, KIA의 8연승 저지
+- H/L: http://m.live.sports.media.daum.net/video/kbo/222967/225231
+- H/L: http://m.sports.naver.com/video.nhn?id=219636
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/222967/225164
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/222967/225206
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/222967/225237
+- Full: http://m.sports.naver.com/video.nhn?id=219653
+- 주요장면 만루 찬스를 살려 낸 하주석의 2타점 적시타
+  - http://m.sports.naver.com/video.nhn?id=219584
+- [MVP] '5이닝 무실점 쾌투' 이태양
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225240
+- [인터뷰] '오늘 경기 총평은?' 김성근 감독
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225235
+- 경기 시작이 한 시간 지연된 챔피언스필드
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225039
+- '걸그룹 베리어스' 소은-슬기 시구 및 시타
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225066
+- [라인업] 한화 vs KIA, 8월 3일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225083
+- '형, 여기' 이용규 배트 주워주는 백용환 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225089
+- 김윤동 만루 위기 모면하는 병살 유도 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225078
+- '두번은 없다' 강한울, 허도환 병살 처리 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225108
+- 정근우 감각적인 더블플레이 처리 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225099
+- 이태양 깔끔하게 세타자로 이닝 마무리 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225117
+- 강한울 폴짝 뛰어올라 건져낸 나이스캐치 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225122
+- 김윤동, 허도환 사구 후 재빠른 사과 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225125
+- 밀어내기 득점으로 선취점 가져오는 한화 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225133
+- 이태양 좋은 투구로 만들어낸 2K 삼자범퇴 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225141
+- '괜찮아요?' 김태균 아찔한 부위에 맞는 볼 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225160
+- 바뀐 투수 고효준, 밀어내기 볼넷 허용 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225151
+- 하주석 좋은 컨택으로 만든 2타점 적시타 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225155
+- 노수광 아웃카운트 2개 만드는 좋은 수비 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225173
+- 로사리오 절묘한 코스의 2타점 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225183
+- 절호의 무사 1,2루 찬스 놓치는 윤정우-필 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225195
+- '4안타 경기' 송광민 호쾌한 1타점 적시타 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225199
+- 하주석 부상이 우려되는 몸에 맞는 볼 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225203
+- 송광민 순발력이 돋보이는 호수비 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225214
+- '2G 연속 선발 전원 안타' 이용규 안타 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225229
+- 김태균 점수 차 벌리는 1타점 내야땅볼 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225220
+- 정근우 송구 실책으로 1실점 헌납 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225227
 

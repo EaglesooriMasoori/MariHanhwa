@@ -186,7 +186,7 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/210084/212322
 - Full: http://m.sports.naver.com/video.nhn?id=201706
 - 주요장면'주장하기 힘들다' 정근우, 공-수-주 맹활약 인성은 덤
-  - http://m.sports.naver.com/video.nhn?id=201686&type=GAMEID
+  - http://m.sports.naver.com/video.nhn?id=201686
 - [MVP] '벤치클리어링은 경기 일부분' 송은범, NC 연승 저지 호투
   - http://m.live.sports.media.daum.net/video/kbo/210084/212357
 
@@ -370,3 +370,15 @@
   - http://m.sports.naver.com/video.nhn?id=217346
 - [MVP] 개인 기록·팀 승리 챙긴 '욕심쟁이' 송광민
   - http://m.live.sports.media.daum.net/video/kbo/220168/224064
+
+### 2016-08-03 [한화 8-1 KIA] '송광민 4안타+이태양 2승' 한화, KIA의 8연승 저지
+- H/L: http://m.live.sports.media.daum.net/video/kbo/222967/225231
+- H/L: http://m.sports.naver.com/video.nhn?id=219636
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/222967/225164
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/222967/225206
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/222967/225237
+- Full: http://m.sports.naver.com/video.nhn?id=219653
+- 주요장면 만루 찬스를 살려 낸 하주석의 2타점 적시타
+  - http://m.sports.naver.com/video.nhn?id=219584
+- [MVP] '5이닝 무실점 쾌투' 이태양
+  - http://m.live.sports.media.daum.net/video/kbo/222967/225240
