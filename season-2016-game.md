@@ -382,3 +382,15 @@
   - http://m.sports.naver.com/video.nhn?id=219584
 - [MVP] '5이닝 무실점 쾌투' 이태양
   - http://m.live.sports.media.daum.net/video/kbo/222967/225240
+
+### 2016-08-05 [한화 14-4 NC] '하주석 만루포 포함 7타점' 한화, NC에 대승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/222977/226051
+- H/L: http://m.sports.naver.com/video.nhn?id=220304
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/222977/225932
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/222977/226003
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/222977/226050
+- Full: http://m.sports.naver.com/video.nhn?id=220308
+- 주요장면 '출루를 위하여' 이 악물고 달리는 이용규
+  - http://m.sports.naver.com/video.nhn?id=220237
+- [MVP] '호수비, 7타점, 8월 5일' 자신의 날로 만든 하주석
+  - http://m.live.sports.media.daum.net/video/kbo/222977/226053

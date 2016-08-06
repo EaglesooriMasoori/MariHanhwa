@@ -2351,3 +2351,70 @@
 - 정근우 송구 실책으로 1실점 헌납 / 9회말
   - http://m.live.sports.media.daum.net/video/kbo/222967/225227
 
+### 2016-08-05 [한화 14-4 NC] '하주석 만루포 포함 7타점' 한화, NC에 대승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/222977/226051
+- H/L: http://m.sports.naver.com/video.nhn?id=220304
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/222977/225932
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/222977/226003
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/222977/226050
+- Full: http://m.sports.naver.com/video.nhn?id=220308
+- 주요장면 '출루를 위하여' 이 악물고 달리는 이용규
+  - http://m.sports.naver.com/video.nhn?id=220237
+- [MVP] '호수비, 7타점, 8월 5일' 자신의 날로 만든 하주석
+  - http://m.live.sports.media.daum.net/video/kbo/222977/226053
+- '끝까지 미소 유지' 진달래 아나운서의 경기 전 리포팅
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225857
+- '미모 폭발' 남규리, 한화 승리 기원 시구
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225861
+- '순간 불펜 투수인 줄' 몸 푸는 정근우
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225930
+- 속도 조절이 가능한 이글스 파크의 파도타기
+  - http://m.live.sports.media.daum.net/video/kbo/222977/226020
+- 진달래 아나운서가 전하는 손시헌-이용규 부상 소식
+  - http://m.live.sports.media.daum.net/video/kbo/222977/226028
+- [라인업] NC vs 한화, 8월 5일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225866
+- 제구 잡은 카스티요, 삼진으로 이닝 종료 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225868
+- '아니 이걸..' 이종욱 실점 막는 환상 캐치 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225878
+- 논란의 이민호, 로사리오에게 2타점 적시타 허용 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225883
+- 하주석, 이민호 강판시킨 커리어 첫 장외 만루 홈런 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225888
+- 장현식 등판, 허도환 한 점 더 달아나는 2루타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225894
+- 한 이닝 7득점, 이글스 파크에 터진 한화산 다이너마이트 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225905
+- 흔들리는 카스티요, 김태군 추격의 2타점 적시타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225913
+- '경기 초반 하드 캐리' 더블 플레이 만든 하주석 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225920
+- 이용규 이 악물고 만든 내야안타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225948
+- 임무 완수 장현식, 삼진으로 마무리 한 구창모 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225942
+- 카스티요 공에 몸 맞은 손시헌, 즉시 교체 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225951
+- '위닝샷은 패스트 볼' 이닝 정리하는 카스티요 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225955
+- 송광민의 3루 도루, 소중한 득점까지 성공 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225969
+- 정근우 이번 시즌 첫 대타자 등장 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225975
+- 하주석, 박석민 잡아내는 든든한 호수비 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225983
+- 이용규, 옆구리에 공 맞고 바로 교체 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225989
+- '선발 전원 안타에 마침표를'  송광민-김태균 연속 적시타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/225998
+- '나는 행복합니다' 점수 차 벌리는 하주석-정근우 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/226011
+- '누가 누가 빠른가?' 김준완 타구 관련 합의 판정 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/222977/226033
+- 추격하는 2득점 만든 나성범-김성욱 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/222977/226036
+- '신들린 방망이' 7타점 경기 펼치는 하주석 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/222977/226043
+- 정대훈 깔끔한 경기 마무리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/222977/226049
