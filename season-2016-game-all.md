@@ -2418,3 +2418,78 @@
   - http://m.live.sports.media.daum.net/video/kbo/222977/226043
 - 정대훈 깔끔한 경기 마무리 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/222977/226049
+
+### 2016-08-07 [한화 8-3 NC] '로사리오 결승포' 한화, NC 꺾고 위닝시리즈 달성
+- H/L: http://m.live.sports.media.daum.net/video/kbo/222988/227059
+- H/L: http://m.sports.naver.com/video.nhn?id=221168
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/222988/226927
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/222988/227013
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/222988/227058
+- Full: http://m.sports.naver.com/video.nhn?id=221192
+- 주요장면 '걸리면 여지없지' 로사리오, 균형을 깨는 시원한 솔로포
+  - http://m.sports.naver.com/video.nhn?id=221122
+- [MVP] 짧았던 김태균의 침묵, 개인 최다 5안타 폭발
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227073
+- '보기만 해도 시원' 진달래 아나운서 풀장에서 리포팅
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226875
+- 경기 전 국민의례, 가수 유성은 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226876
+- 김성근 감독 투구 동작 어필, 웃고 마는 최일언 코치
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226944
+- '투수 하길 잘했어요' 민망함에 씩 웃는 카스티요
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226950
+- '규정대로 하면 퇴장' 해설진이 짚어주는 합의 판정 어필
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227035
+- '난리다 난리' 4시간 동안 많은 일이 있었던 이글스파크
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227049
+- [라인업] NC vs 한화, 8월 7일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226885
+- '오늘은 다르다' 윤규진, 1회 넘기는 삼자범퇴 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226882
+- 선발 출장한 도태훈 흔드는 이용규의 주루 플레이 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226889
+- '악 내 엄지' 박석민 실점 허용하는 아쉬운 1루 송구 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226893
+- 김태균, 해커 상대로 적시 2루타 폭발 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226898
+- '원, 투, 쓰리' 윤규진 순조로운 피칭 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226902
+- '손시헌이 없어서 그런가' 박민우의 송구 실책 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226907
+- 도태훈 밀어 쳐서 만든 데뷔 첫 안타 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226910
+- 박민우 희생타, 도태훈 득점 성공 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226917
+- '데뷔 첫 10홈런' 김성욱, 역전 투런포 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226921
+- '커튼 콜' 정근우, 역대 31번째 통산 2루타 250개 달성 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226931
+- 김태균 경기 원점으로 돌리는 동점 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226935
+- 경기 초반 부상으로 결국 교체되는 박석민 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226965
+- '역대 7호' 해커 구단 창단 첫 한 이닝 4K 진기록 달성 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226959
+- 중요한 순간에 나온 하주석 더블 플레이 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227046
+- '총력전' 한화 권혁 등판, NC 대주자 김종호로 응수 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226978
+- 테임즈 홈 쇄도 막는 허도환, 감독들 모두 등장한 합의 판정 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226986
+- '내가 타점 1위 킹사리오' 로사리오 역전 솔로포 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226988
+- 차일목, 번트 대신 강공으로 적시타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/226997
+- '역대 25호, 개인 통산 1,500안타' 이용규 적시타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227003
+- '응급 처치에 5분' 도태훈 머리에 사구, 권혁 헤드샷 퇴장 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227006
+- 권혁 헤드샷 퇴장, 위기 넘기는 심수창-차일목 배터리 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227020
+- 만루 찬스, 차일목 사구 밀어내기-장민석 적시타로 2득점 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227028
+- 테임즈의 확신, 합의 판정 끝에 병살타 완성 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227055
+- '심장이 바운스 바운스' 만루 위기 마주한 정우람 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227066
+

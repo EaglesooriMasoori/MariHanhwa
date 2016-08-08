@@ -394,3 +394,15 @@
   - http://m.sports.naver.com/video.nhn?id=220237
 - [MVP] '호수비, 7타점, 8월 5일' 자신의 날로 만든 하주석
   - http://m.live.sports.media.daum.net/video/kbo/222977/226053
+
+### 2016-08-07 [한화 8-3 NC] '로사리오 결승포' 한화, NC 꺾고 위닝시리즈 달성
+- H/L: http://m.live.sports.media.daum.net/video/kbo/222988/227059
+- H/L: http://m.sports.naver.com/video.nhn?id=221168
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/222988/226927
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/222988/227013
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/222988/227058
+- Full: http://m.sports.naver.com/video.nhn?id=221192
+- 주요장면 '걸리면 여지없지' 로사리오, 균형을 깨는 시원한 솔로포
+  - http://m.sports.naver.com/video.nhn?id=221122
+- [MVP] 짧았던 김태균의 침묵, 개인 최다 5안타 폭발
+  - http://m.live.sports.media.daum.net/video/kbo/222988/227073
