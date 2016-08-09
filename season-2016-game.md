@@ -406,3 +406,15 @@
   - http://m.sports.naver.com/video.nhn?id=221122
 - [MVP] 짧았던 김태균의 침묵, 개인 최다 5안타 폭발
   - http://m.live.sports.media.daum.net/video/kbo/222988/227073
+
+### 2016-08-09 [한화 9-6 삼성] '이용규 3안타 4타점' 한화, 삼성전 7연승 행진
+- H/L: http://m.live.sports.media.daum.net/video/kbo/225281/228064
+- H/L: http://m.sports.naver.com/video.nhn?id=222132
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/225281/227978
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/225281/228002
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/225281/228074
+- Full: 
+- 주요장면 추격을 허락하지 않는 이용규-정근우의 연속 적시타
+  - http://m.sports.naver.com/video.nhn?id=222071
+- [MVP] '3안타 4타점' 장타력 폭발한 이용규
+  - http://m.live.sports.media.daum.net/video/kbo/225281/228081

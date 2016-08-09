@@ -2493,3 +2493,56 @@
 - '심장이 바운스 바운스' 만루 위기 마주한 정우람 / 9회초
   - http://m.live.sports.media.daum.net/video/kbo/222988/227066
 
+### 2016-08-09 [한화 9-6 삼성] '이용규 3안타 4타점' 한화, 삼성전 7연승 행진
+- H/L: http://m.live.sports.media.daum.net/video/kbo/225281/228064
+- H/L: http://m.sports.naver.com/video.nhn?id=222132
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/225281/227978
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/225281/228002
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/225281/228074
+- Full: 
+- 주요장면 추격을 허락하지 않는 이용규-정근우의 연속 적시타
+  - http://m.sports.naver.com/video.nhn?id=222071
+- [MVP] '3안타 4타점' 장타력 폭발한 이용규
+  - http://m.live.sports.media.daum.net/video/kbo/225281/228081
+- 승부조작 등 불공정한 행위에 대한 사죄의 시간
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227877
+- [라인업] 삼성 vs 한화, 8월 9일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227888
+- 로사리오, 박해민 잡는 정확한 송구 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227885
+- 로사리오 적시타, 주루 과정에서의 김태균-백상원 충돌 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227898
+- '병살 유도' 이태양 세타자로 이닝 마무리 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227910
+- 정근우 이닝 끝내는 멋진 러닝스로우 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227930
+- '역대 6번째 1,100타점' 김태균 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227935
+- 최형우, 발 빠른 박해민 불러들이는 적시타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227940
+- 이용규 호쾌한 스윙으로 만든 2타점 3루타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227949
+- 정근우 한 점 더 추가하는 1타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227951
+- 조동찬 더블 플레이 만드는 나이스캐치 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227955
+- 이지영 점수 차 좁히는 추격의 투런포 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227959
+- '악송구' 구자욱 아쉬운 실책으로 1점 헌납 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227969
+- 이용규, 윤성환 강판시키는 2타점 적시타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/225281/227975
+- '삼구삼진' 권혁 1K 삼자범퇴 쾌투 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/225281/228005
+- '추격 시작' 최형우 초구 공략 2타점 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/225281/228014
+- 이승엽, 송창식 상대로 만든 1타점 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/225281/228020
+- 정우람 삼진 두개 솎아내며 위기 탈출 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/225281/228024
+- '4안타 경기' 송광민 호쾌한 1타점 적시타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/225281/228042
+- 정우람 안정적인 투구 펼치며 세이브 달성 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/225281/228065
+- [인터뷰] '최선을 다하겠습니다' 이태양
+  - http://m.live.sports.media.daum.net/video/kbo/225281/228071
