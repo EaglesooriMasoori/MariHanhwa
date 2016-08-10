@@ -2499,7 +2499,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/225281/227978
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/225281/228002
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/225281/228074
-- Full: 
+- Full: http://m.sports.naver.com/video.nhn?id=222195
 - 주요장면 추격을 허락하지 않는 이용규-정근우의 연속 적시타
   - http://m.sports.naver.com/video.nhn?id=222071
 - [MVP] '3안타 4타점' 장타력 폭발한 이용규
