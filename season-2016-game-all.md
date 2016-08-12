@@ -2546,3 +2546,47 @@
   - http://m.live.sports.media.daum.net/video/kbo/225281/228065
 - [인터뷰] '최선을 다하겠습니다' 이태양
   - http://m.live.sports.media.daum.net/video/kbo/225281/228071
+
+### 2016-08-11 [한화 3-2 롯데] '정근우 결승타' 한화, 롯데 꺾고 7위 점프
+- H/L: http://m.live.sports.media.daum.net/video/kbo/225292/229454
+- H/L: http://m.sports.naver.com/video.nhn?id=223256
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/225292/229313
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/225292/229373
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/225292/229443
+- Full: http://m.sports.naver.com/video.nhn?id=223301
+- 주요장면 '체력적인 부담은 없다' 송창식, 시즌 7승 혼신의 역투
+  - http://m.sports.naver.com/video.nhn?id=223264
+- [MVP] '완벽한 중간 계투 역할 소화' 송창식
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229470
+- [인터뷰] '경기 내용이 좋아 만족합니다' 송창식
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229442
+- '아이비 여자 야구단 선수' 이순희-김윤희 시구 및 시타
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229255
+- 한화 vs 롯데, 국민의례(아이비 여자 야구단 소속 선생님과 제자)
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229257
+- [라인업] 한화 vs 롯데, 8월 11일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229265
+- '리드오프 홈런' 이용규 큼지막한 솔로포 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229259
+- 황재균 안정적인 호수비 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229278
+- 양성우 빠른 발로 만들어낸 내야 안타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229298
+- 로사리오 한 점 더 달아나는 1타점 적시타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229306
+- 카스티요 압도적인 구위로 2K 삼자범퇴 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229317
+- 강민호, 장민석 도루 저지하는 송구 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229320
+- 연속된 묘한 타구, 동점에 성공하는 롯데 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229338
+- 그 어디에도 송구하지 못한 차일목 '경기 리셋' / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229344
+- 박진형, 로사리오 처리하며 QS 완성하는 피칭 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229361
+- '만루 위기' 송창식, 승패 걸린 승부처에서 역투 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229366
+- 정근우 경기 균형 깨는 1타점 적시타 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229383
+- 정우람-차일목-하주석 경기를 끝내는 플레이 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229434

@@ -418,3 +418,15 @@
   - http://m.sports.naver.com/video.nhn?id=222071
 - [MVP] '3안타 4타점' 장타력 폭발한 이용규
   - http://m.live.sports.media.daum.net/video/kbo/225281/228081
+
+### 2016-08-11 [한화 3-2 롯데] '정근우 결승타' 한화, 롯데 꺾고 7위 점프
+- H/L: http://m.live.sports.media.daum.net/video/kbo/225292/229454
+- H/L: http://m.sports.naver.com/video.nhn?id=223256
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/225292/229313
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/225292/229373
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/225292/229443
+- Full: http://m.sports.naver.com/video.nhn?id=223301
+- 주요장면 '체력적인 부담은 없다' 송창식, 시즌 7승 혼신의 역투
+  - http://m.sports.naver.com/video.nhn?id=223264
+- [MVP] '완벽한 중간 계투 역할 소화' 송창식
+  - http://m.live.sports.media.daum.net/video/kbo/225292/229470
