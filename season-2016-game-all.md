@@ -2590,3 +2590,81 @@
   - http://m.live.sports.media.daum.net/video/kbo/225292/229383
 - 정우람-차일목-하주석 경기를 끝내는 플레이 / 9회말
   - http://m.live.sports.media.daum.net/video/kbo/225292/229434
+
+### 2016-08-14 [한화 3-2 KIA] '장민석 결승타' 한화, KIA 꺾고 7위 탈환
+- H/L: http://m.live.sports.media.daum.net/video/kbo/225313/231676
+- H/L: http://m.sports.naver.com/video.nhn?id=225213
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/225313/231488
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/225313/231576
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/225313/231681
+- Full: http://m.sports.naver.com/video.nhn?id=225314
+- 주요장면 1사 3루의 위기, 혼신의 역투로 이닝을 마무리하는 송창식
+  - http://m.sports.naver.com/video.nhn?id=225200
+- [MVP] '7위 재탈환 해결사' 한화의 4번 타자 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231704
+- '카메라를 알아요' 로사리오 사랑의 하트
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231441
+- '엄마 골퍼' 안시현, 딸과 함께 KIA 승리기원 시구
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231444
+- '앉아서 방망이 돌리기' 로사리오 독특한 훈련
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231463
+- [라인업] 한화 vs KIA, 8월 14일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231452
+- '원, 투, 쓰리' 지크 깔끔한 삼자범퇴 출발 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231453
+- 3연승 기세 이어가는 이태양, 2K 위력투 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231460
+- 잔루는 1-2루, 지크 무실점 피칭 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231465
+- '합의 판정해주세요' 나지완 기습 도루 시도 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231485
+- 볼넷 허용 이태양, 세 타자로 이닝 종료 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231473
+- 이태양 안타는 허용하지 않는 완벽투 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231489
+- '지크가 돌아왔다' KK로 타선 압도하는 지크 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231499
+- '결국은 포크 볼' 실점 위기 벗어나는 이태양 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231513
+- '지크는 알아요' 어려운 타구 쉽게 처리한 김호령 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231517
+- 지크, 이용규 삼진 잡아내며 위기 탈출 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231529
+- 서동욱 간발의 차이로 2루 세이프, 한화 합의 판정 요청 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231534
+- 감 좋은 정근우, 합의 판정 끝에 도루 저지 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231546
+- '캡틴, 고마워요' 정근우 덕분에 위기 넘기는 이태양 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231557
+- 김태균, 지크 상대로 선제 투런포+통산 2,900루타 달성 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231561
+- 갑작스러운 팔꿈치 통증으로 교체되는 지크 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231569
+- '로사리오 생유' 이태양, 4연승 향한 삼자범퇴 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231578
+- 김호령, 정근우 안타 훔치는 나이스 캐치 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231585
+- '2G 연속포' 서동욱, 권혁 상대로 동점 투런포 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231597
+- 오늘도 등판한 송창식, 추가 실점 없이 마무리 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231613
+- 아슬아슬한 합의 판정, 2루까지 진루하는 송광민 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231621
+- '다행이네요' 펜스 부근에서 넘어진 김주형 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231626
+- 장민석 내야를 가르는 귀중한 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231630
+- 김광수 추가 실점 없이 이닝 마무리 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231639
+- 1사 3루 찬스, 삼진-플라이로 물러난 김주찬과 나지완 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231651
+- 마무리 임창용 등판, 삼진으로 이닝 정리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231688
+- '내가 최고의 2루수다' 정근우 어메이징 호수비 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231661
+- 정우람 한 점차 승리 지키며 경기 마무리 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231674
+- 1차전 패배 설욕한 한화, 김성근 감독과 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231686
+- [인터뷰] 김태균 '요새 지명 타자라 더 힘을 냅니다'
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231683

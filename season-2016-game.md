@@ -430,3 +430,15 @@
   - http://m.sports.naver.com/video.nhn?id=223264
 - [MVP] '완벽한 중간 계투 역할 소화' 송창식
   - http://m.live.sports.media.daum.net/video/kbo/225292/229470
+
+### 2016-08-14 [한화 3-2 KIA] '장민석 결승타' 한화, KIA 꺾고 7위 탈환
+- H/L: http://m.live.sports.media.daum.net/video/kbo/225313/231676
+- H/L: http://m.sports.naver.com/video.nhn?id=225213
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/225313/231488
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/225313/231576
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/225313/231681
+- Full: http://m.sports.naver.com/video.nhn?id=225314
+- 주요장면 1사 3루의 위기, 혼신의 역투로 이닝을 마무리하는 송창식
+  - http://m.sports.naver.com/video.nhn?id=225200
+- [MVP] '7위 재탈환 해결사' 한화의 4번 타자 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/225313/231704
