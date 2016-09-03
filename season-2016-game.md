@@ -442,3 +442,15 @@
   - http://m.sports.naver.com/video.nhn?id=225200
 - [MVP] '7위 재탈환 해결사' 한화의 4번 타자 김태균
   - http://m.live.sports.media.daum.net/video/kbo/225313/231704
+
+### 2016-08-18 [한화 8-5 LG] '하주석 3안타 3타점' 한화, LG 잡고 2연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/225313/231676
+- H/L: http://m.sports.naver.com/video.nhn?id=227732
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/229158/234238
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/229158/234275
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/229158/234337
+- Full: http://m.sports.naver.com/video.nhn?id=227768
+- 주요장면 '실수 100% 만회 ' 하주석, 3안타 3타점으로 공수 맹활약
+  - http://m.sports.naver.com/video.nhn?id=227723
+- [MVP] '역적에서 영웅으로' 시련 이겨낸 하주석
+  - http://m.live.sports.media.daum.net/video/kbo/229158/234387
