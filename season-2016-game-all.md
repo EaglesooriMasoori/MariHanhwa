@@ -2732,3 +2732,1097 @@
   - http://m.live.sports.media.daum.net/video/kbo/229158/234349
 - 한 큐에 보는 이용규 호수비 퍼레이드
   - http://m.live.sports.media.daum.net/video/kbo/229158/234325
+
+### 2016-08-21 [한화 12-6 KT] [H/L] '김태균 만루포' 한화, kt 꺾고 연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/229177/236607
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/229177/236475
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/229177/236554
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/229177/236610
+- [MVP] '4,338일 만의 원정 경기 선발승' 윤규진
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236621
+- '아름다운 자매' 배우 정유진 시구-치어리더 정유민 시타
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236410
+- '공 두 개는 아니에요' 마운드에서 얼른 피하는 로위
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236430
+- [라인업] 한화 vs kt, 8월 21일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236421
+- 송광민, 로위 상대로 시즌 15호 투런포 폭발 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236416
+- 이대형 빠른 주력 확인한 합의 판정 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236424
+- '에어 주석' 하주석 어메이징 점프 캐치 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236427
+- '2 아웃 이글스' 이용규 달아나는 2타점 적시타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236438
+- '긴장 타고, 정신 잡으라' 김민재 코치, kt 선수단 소집 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236442
+- 정근우의 재치, 인 필드 플라이 선언으로 실패 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236448
+- 문상철, 실투 놓치지 않고 2타점 2루타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236453
+- 로위, 박경수 호수비-삼진으로 위기 탈출 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236462
+- 캡틴 박경수, 만루 찬스 살린 1타점 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236468
+- 윤규진 병살 유도하며 이닝 마무리 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236480
+- '위기 다음은 찬스' 장민석 불러들이는 김태균 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236498
+- 만루에서 초구 플라이아웃 날리는 오정복 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236510
+- '완벽한 배트 플립' 로사리오, 시즌 29호 홈런 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236513
+- '시즌 4호' 양성우, 기쁨의 백투백 홈런포 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236518
+- 장민석 3루 질주, 유한준-박경수 중계 플레이로 아웃 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236542
+- 윤규진, 승리 투수 요건 충족하는 삼자범퇴 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236536
+- 윤규진 다음은 송창식, 승리 지키기 위해 등판 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236559
+- 박경수, 송창식 강판시키는 추격의 적시타 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236567
+- 3연투 권혁 적시타 허용, 5연투 심수창 이닝 마무리 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236580
+- '통산 5,000타수 달성' 이용규 도망가는 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236587
+- 송광민 거르고 김태균, 쐐기 그랜드슬램 폭발 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236591
+- 오정복 집중력 빛난 펜스 앞 타구 캐치 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236602
+- 정우람 등판, 1실점 후 경기 마무리 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236606
+- '323일의 악몽' 수원 7연패 탈출, 김성근 감독 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236616
+- [인터뷰] 선발이 어려운 윤규진 '불펜, 이닝 소화, 승리 투수'
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236613
+
+### 2016-08-26 [한화 7-4 NC] [H/L] '김태균 3타점' 한화, NC 꺾고 7위 도약
+- H/L: http://m.live.sports.media.daum.net/video/kbo/234764/238446
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/234764/238353
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/234764/238412
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/234764/238443
+- [MVP] '6K 탈삼진쇼' 한화의 아껴둔 카드 박정진
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238452
+- 법무부와 함께하는 '배려, 클린 스포츠' 캠페인
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238304
+- 공승연, 해돌이-해순이('법치와 정의' 마스코트) 시구 행사
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238305
+- 박재홍 해설이 말하는 야구 펜스와 야구 인프라
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238379
+- 김성근 감독과 두 개의 야신학개론
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238406
+- [라인업] NC vs 한화, 8월 26일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238321
+- 오늘은 김성욱, 윤규진 상대로 선제 투런포 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238313
+- 윤규진, 나성범-테임즈-박석민 범타 처리 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238319
+- '더블 스틸 성공' 정근우-이용규 베테랑들이 만든 득점 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238327
+- '2G 연속포' 김태균, 스튜어트 상대 역전 투런포 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238323
+- 테임즈 독수리 기세 꺾는 더블아웃 캐치 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238332
+- 타점왕 테임즈, 동점 만드는 적시타 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238343
+- '빛나는 밤에' 이용규가 끌고 김태균이 마무리한 역전타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238348
+- 폭투와 양성우 적시타로 도망가는 한화 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238358
+- '규진아 실점은 막아줄게' 차일목-정근우 연속 호수비 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238369
+- '나와라, 가제트 팔' 김성욱 슈퍼 캐치 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238371
+- 하주석 조급했던 송구, 테임즈 어부지리 득점 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238385
+- 2S로 시작한 김태균, 끝내 볼넷으로 출루 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238403
+- '타점 경쟁 냠냠' 로사리오 행운의 적시타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238393
+- '개인 최다 116구' 윤규진, 박정진과 바통 터치 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238417
+- 권혁 대신 박정진, 강렬한 KK 완벽 피칭 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238420
+- 장현식 등판, 깔끔하게 이닝 종료 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238421
+- '로요미' 로사리오 호수비 하고 웃음 한가득 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238431
+- 하주석 또 실책, 박정진 탈삼진으로 이닝 정리 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238437
+- '우리는 7위로 간다' 15세이브 수확하는 정우람 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238441
+
+### 2016-08-27 [한화 12-4 SK] [H/L] '선발 전원 안타 폭발' 한화, SK 꺾고 2연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/234770/238822
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/234770/238682
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/234770/238739
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/234770/238825
+- [MVP] '내가 비룡 사냥꾼' SK에 강한 장민재
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238885
+- 블랙야크 강태선 나눔 재단의 청년&청소년, 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238557
+- '이게 무슨 일?' 멈추지 않는 스프링클러, 경기 지연
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238567
+- '너무 안 풀리네' 김용희 감독이 머리 아픈 이유
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238742
+- 멋진 캐치볼 실력 선보이는 SK 볼걸
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238744
+- 시무룩한 마스코트, 그래도 꼬마 숙녀 안아주는 매너
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238834
+- 'SK 전 12득점' 한화 다이너마이트 타선 폭발
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238845
+- [라인업] 한화 vs SK, 8월 27일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238629
+- 여름의 타격 달인 김태균, 선취 1타점 적시타 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238588
+- 임준혁 아쉬운 수비, 양성우 2타점 적시타 작렬 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238605
+- 양성우 불러들이는 차일목, 김용희 감독 등판 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238614
+- 로진백 지적받는 장민재, 실점 없이 이닝 종료 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238653
+- 로사리오 적시타 '역대 6번째' 팀 통산 5만 2천루타 달성한 한화 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238677
+- 임준혁 강판, 3득점 추가하는 김회성-로사리오 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238665
+- '나만 믿으라고' 장민재 삼자범퇴 피칭 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238686
+- 또 1타점 적시타 올리는 김태균, 이번엔 2루타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238692
+- 박정권 치명적인 실책, 3득점 추가하는 한화 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238698
+- '장민재의 로진 가루' 양 팀 김 감독 모두 등장 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238709
+- 김민식, 김강민 불러들이는 1타점 추격타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238717
+- '김민식 들어가' 폭투를 견제 아웃으로 연결한 차일목 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238733
+- '시즌 2호포' 박승욱, 장민재 상대로 솔로포 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238722
+- 장운호 과감한 시도, 최정용에게 3루타 허용 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238752
+- 박승욱 적시타-박재상 땅볼 타구로 2점 추격하는 SK / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238761
+- 하주석 시즌 10호포, 한화 선발 전원 안타 완성 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238774
+- 정의윤 안일한 수비, 교체하는 김용희 감독 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238805
+- '참을 수 없는 고통' 이용규 몸에 맞는 볼 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238785
+- 김재현, 김태균 안타 지우는 어메이징 캐치 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238800
+- 주자 1-3루 위기, 정대훈 실점 없이 경기 종료 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238819
+
+### 2016-08-28 [한화 9-1 SK] [H/L] '김태균 5타점 폭발' 한화 3연승 질주, SK 3연패
+- H/L: http://m.live.sports.media.daum.net/video/kbo/234781/239217
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/234781/239120
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/234781/239156
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/234781/239216
+- [MVP] 포기하지 않은 김태균, 5타점으로 승리 배달
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239255
+- '라오J 브라더스' 이만수 구단주 시포, 시구 투유 군-시타 주장 뻐 군
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239101
+- '반가운 얼굴' 헐크 이만수가 말하는 재능 기부
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239111
+- '흥 폭발' 라오J 브라더스 선수단과 호주 여자 선수단
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239123
+- 한자리에 모인 SK 전-현직 감독들, 이만수 전 감독 활약상
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239159
+- '부끄러움은 누구의 몫인가?' 한국-호주-라오스 이색 대결
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239191
+- '라오J 브라더스' 야구단, 이만수 구단주 초청 행사
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239197
+- [라인업] 한화 vs SK, 8월 28일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239113
+- '2년 연속 100타점' 해결사 김태균, 선취 1타점 적시타 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239103
+- 호수비에 막힌 로사리오, 추가 타점에는 성공 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239104
+- 박승욱 잡아낸 차일목, 카스티요 무실점 마무리 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239108
+- 역투하는 윤희상 2K 삼자범퇴 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239112
+- 잔루는 3루, 카스티요 삼진으로 위기 탈출 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239118
+- 8구 만에 타자들 돌려세우는 윤희상 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239131
+- 카스티요 투수전 이어가는 1K 삼자범퇴 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239133
+- '치아 다 나가는 줄..' 최정 아찔했던 상황 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239135
+- 위기 몰린 윤희상, 합의 판정 끝에 위기 탈출 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239138
+- '정의윤, 생유' 병살타 유도하는 카스티요 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239145
+- 라라 등판, 이용규-김회성-김태균 범타 처리 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239148
+- '연승은 이어야 제맛' 카스티요 2K 역투 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239151
+- 고메즈 호수비, 상상 초월 점프 송구 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239168
+- 고메즈, 장민석 안타 훔치는 다이빙캐치 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239187
+- 김태균, 만루 기회 놓치지 않는 2타점 적시타 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239179
+- 로사리오, 역대 56번째 30홈런-100타점 달성 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239176
+- 최정, 카스티요 상대로 시즌 32호 홈런 작렬 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239183
+- 마운드 지킨 카스티요, 박정진과 바통 터치 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239230
+- '승부에 쐐기' 김태균 5타점 경기 완성한 투런포 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239205
+- 정우람 등판, 만루 위기에서 삼진으로 경기 종료 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239213
+- '3연승 달성' 김성근 감독, 선수단 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239218
+- [인터뷰] 김태균 '수비 안 하니깐 더 집중하고 있습니다'
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239224
+
+### 2016-09-02 [한화 11-6 LG] [H/L] '김태균 투런포' 한화, LG 꺾고 2연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/237640/240539
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/237640/240469
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/237640/240496
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/237640/240538
+- [MVP] 김태균 '후반기 타율 0.424-최다 108타점' 막을 자가 없다
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240550
+- 류제국 에러, 임찬규의 좋은 백업
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240440
+- [라인업] LG vs 한화, 9월 2일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240443
+- 장민재 모든 아웃 카운트 삼진으로 처리 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240442
+- 임찬규 도루 저지-삼진으로 이닝 종료 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240445
+- 힘차게 공 뿌리는 장민재 1K 삼자범퇴 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240450
+- 오지환 에러-차일목 희생타, 안타 없이 점수 얻는 한화 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240456
+- 박용택에게 실점하는 장민재, 후속 타자 처리 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240466
+- 히메네스 시작부터 마무리까지, 임찬규 삼자범퇴 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240471
+- 채은성 3루타 작렬, 합의 판정 끝에 득점 성공 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240475
+- 더블 플레이로 순식간에 주자 지우는 장민재 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240488
+- '정근우 에러' 순식간에 경기 뒤집는 손주인-김용의 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240479
+- 로사리오, 분위기 바꾸는 솔로포 폭발 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240484
+- '역전에는 역전으로 응답' 차일목 2타점 2루타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240486
+- 이동현 등판, 귀신같은 견제구로 위기 탈출 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240494
+- '물음표 한가득' 히메네스, 무사 1-2루 상황에서 비명횡사 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240490
+- 김태균 투런포, 개인 최다 108타점 신기록 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240491
+- 손주인 어려운 바운드 처리하는 호수비 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240497
+- 카스티요 강력한 피칭, 2K 삼자범퇴 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240505
+- '용규다 용규' 카스티요 만세 부르게 한 이용규 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240499
+- '역대 4호' 정우람, 7년 연속 50G 출장 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240509
+- 정성훈, 정우람 상대 대타 투런포 작렬 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240515
+- 하주석 절묘한 번트 안타, 양상문 감독 마운드 등판 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240517
+- 차일목 몸에 맞는 볼, 어필하는 양상문 감독 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240519
+- '약속의 8회' 무사 만루서 3득점 하는 한화 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240525
+- 정근우 상대를 놀라게 만드는 홈 쇄도, 판정 결과는? / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240531
+- 정우람 실점 없이 경기 마무리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240540
+- 총력전으로 LG 제압한 한화, 김성근 감독 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240543
+
+### 2016-09-03 [한화 13-11 넥센] [H/L] '송광민 결승 투런' 한화, 넥센에 13-11 대역전극
+- H/L: http://m.live.sports.media.daum.net/video/kbo/237646/240961
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/237646/240765
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/237646/240902
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/237646/240955
+- 10~11: http://m.live.sports.media.daum.net/video/kbo/237646/240960
+- [MVP] '가을 야구 포기 안해' 결승 투런포 송광민
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240962
+- [라인업] 한화 vs 넥센, 9월 3일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240691
+- 정근우, 이용규 불러들이고 자신은 2루서 아웃 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240686
+- 이택근, 심수창 공 맞고 손가락 부상으로 교체 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240704
+- '거기 던지려고 한건 아닌데' 멋쩍은 심수창 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240699
+- '이번 주 타율 0.529' 김민성 가볍게 동점 적시타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240707
+- 차일목 잘 맞은 라인드라이브 1타점 희생타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240712
+- 이성열 다시 앞서가는 행운의 텍사스 안타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240720
+- 로사리오 목에 담 증세, 신성현으로 교체 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240740
+- 신성현 상대 실책성 수비 덕 본 1타점 내야 안타 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240743
+- '어제 오늘 합쳐 5타점' 차일목 2타점 적시타 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240747
+- '타격왕 기운?' 김태균에겐 흔치 않은 내야안타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240770
+- '혼자 있고 싶어' 하주석 아쉬움에 털썩 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240776
+- '정신차려' 심재학 코치의 사랑의 헬멧 터치 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240778
+- 서건창 한 점 만회하는 1타점 내야 땅볼 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240785
+- 김성근 감독 예언도 소용 없는 고종욱 2타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240787
+- 강지광, 심수창 결국 강판 시킨 1타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240794
+- '2루수가 할 수 있는 최고 레벨의 수비' 서건창 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240799
+- '지수가 홈런이라고?' 김지수 동점 솔로포 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240813
+- 마정길, 오늘 3삼진 하주석 상대 밀어내기 볼넷 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240833
+- '우린 3연투 없어' 하지만 김정훈 밀어내기 사구 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240839
+- 염경엽 감독이 강지광에게 쓰리번트 지시를? / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240861
+- '그 어려운걸 제가' 김민성 역전 스리런 작렬 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240874
+- 임병욱, 서캠프 상대로 추가 2타점 적시타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240877
+- '크레이지 모드' 김민성 말 그대로 미친 수비 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240879
+- 김회성 2루타성 타구 막아낸 좋은 수비 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240891
+- '2사 이후도 문제 없어' 이보근 깔끔한 피칭 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240907
+- 정수성 주루 코치 어지러움 호소하며 교체 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240916
+- '연속 4안타' 정근우 추격의 1타점 적시타 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240930
+- '간만에 마리한화' 김태균 극적인 동점 적시타 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240934
+- 권용관 역전 찬스에서 찬물 끼얹는 병살 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240935
+- '저 좌익수요' 정근우 자신의 위치 알린 수비 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240940
+- '거르고 채우고' 정우람 만루 위기 탈출 / 10회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240954
+- 송광민 우중간 가르는 2루타..가 아닌 투런포 / 11회초
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240956
+- '정우람 승리, 이태양 세이브?' 됐고 경기 끝 / 11회말
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240958
+
+### 2016-09-08 [한화 4-3 KT] [H/L] '송광민 끝내기 안타' 한화, kt에 대역전극
+- H/L: http://m.live.sports.media.daum.net/video/kbo/240064/242385
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/240064/242269
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/240064/242318
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/240064/242386
+- [MVP] '생애 첫 끝내기' 송광민 3연패 끊는 귀중한 한 방
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242389
+- 故 하일성 위원을 위한 묵념
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242188
+- '손가락 괜찮으냐?' 이태양 살피는 김성근 감독
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242302
+- 더그아웃 지키는 로사리오, 시무룩한 미소
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242347
+- '대형아 위험해' 타구에 깜짝 놀라는 조범현 감독
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242365
+- [라인업] kt vs 한화, 9월 8일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242193
+- 하주석, 이대형 잡아내는 멋진 러닝스로우 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242199
+- 이진영 시즌 100안타-통산 2,800루타 동시 달성 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242219
+- 실점 없이 경기 출발하는 이태양 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242195
+- '아찔한 상황' 이용규 얼굴로 향한 파울 타구 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242206
+- '보문산은 보입니다' 갑작스러운 소나기로 우천 지연
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242204
+- 좋은 수비 펼치며 송광민 잡아낸 로위 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242223
+- '대형 방수포는 멋진 볼거리' 거센 빗줄기로 또 우천 지연
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242221
+- '그라운드 키퍼 여러분, 감사합니다' 그라운드 재정비
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242230
+- 정말 오래 기다린 로위, 무실점 이닝 종료 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242254
+- '조범현 감독이 더 흐뭇' 박경수 솔로포 작렬 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242236
+- 2-3루 실점 위기, 무실점으로 탈출한 로위 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242248
+- 이태양, 만루 위기 무실점 이닝 마무리 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242263
+- 이성열 안타를 아웃 카운트로 바꾼 강력한 송구 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242283
+- 안타 허용했지만 세 타자로 막아낸 이태양 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242272
+- '구위가 예술' 로위 KK 삼자범퇴 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242276
+- 대형 유격수 하주석, 이대형 잡는 기가 막힌 수비 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242287
+- 로위의 호투, 14이닝 연속 무득점 침묵하는 한화 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242295
+- '모두 꼼짝 마' 실점 막는 송광민 점프 캐치 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242297
+- 손가락 신경 쓰인 이태양, 위기 벗어나는 호투 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242310
+- '이용규 vs 로위' 13구 용규놀이 대결 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242316
+- 잔루는 1-2루, 무실점 피칭 '에이스' 로위 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242326
+- 이진영 한 점 더 달아나는 2루타 폭발 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242334
+- 로위 다음 장시환 등판, KKK 탈삼진쇼 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242343
+- 정말 중요한 순간, 어메이징 캐치 선보인 오정복 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242352
+- 한화 타선 무실점으로 막아내는 장시환 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242354
+- '시즌 5호' 오정복, 서캠프 상대로 솔로포 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242361
+- 하주석 무득점 끝내는 추격의 적시타 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242372
+- 배우열 등판, 오선진 밀어내기로 한 점 더 추격 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242378
+- 이용규 동점 적시타, 경기 끝내는 송광민 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242383
+- '끝날 때까지 끝난 게 아니다' 대역전 드라마의 결말
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242391
+
+### 2016-09-09 [한화 2-1 KT] [H/L] '이용규 끝내기' 한화, kt에 이틀 연속 끝내기 승리
+- H/L: http://m.live.sports.media.daum.net/video/kbo/240069/242682
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/240069/242598
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/240069/242642
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/240069/242691
+- [MVP] 7년 만에 기막힌 투구한 송은범 '119구 혼신투'
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242715
+- [라인업] kt vs 한화, 9월 9일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242564
+- 주자 1-3루 위기, 무실점으로 막는 송은범 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242568
+- 수비 실책에 안타, 삼진으로 이겨내는 주권 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242573
+- '수비 코치는 허탈' 신성현 송구 실책 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242575
+- 실책과 실책성 수비, 그래도 실점 막는 송은범 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242578
+- '실책은 홈런으로 만회' 신성현 호쾌한 솔로포 작렬 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242584
+- 호수비에 기 받은 송은범 1K 삼자범퇴 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242593
+- 주권, 김태균 플라이아웃 처리하며 이닝 종료 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242600
+- 송광민 실점 막는 강습 타구 처리 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242607
+- 박기혁 행운의 동점타, 역전은 허용하지 않는 송은범 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242614
+- 위기에 강한 주권, 대타 차일목 범타 처리 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242623
+- 송은범 오랜만에 선발 야구 이어가는 호투 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242628
+- '역대 13호' 김태균, 통산 1,800안타 돌파 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242632
+- '감독님이 보고 계시는데..' 주권 넘지 못하는 이성열 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242637
+- 글러브 끈 다시 묶은 송은범 1K 삼자범퇴 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242643
+- 주권 3연속 플라이아웃 유도하며 이닝 마무리 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242646
+- 단 7구만에 이닝 정리하는 송은범 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242656
+- 최고 피칭 선보인 주권, 삼진으로 이닝 종료 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242666
+- 오선진, 이진영 안타 훔치는 나이스 캐치 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242650
+- 8이닝 소화하는 송은범 1K 삼자범퇴 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242661
+- 정우람 등판, kt 타선 압도하는 피칭 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242671
+- 차일목 아찔한 몸에 맞는 볼, 조범현 감독의 어필 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242676
+- '연이틀 끝내기 승리' 이용규 끝내기 안타 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242684
+
+### 2016-09-10 [한화 14-0 SK] [H/L] '타선 대폭발' 한화, SK 7연승 저지
+- H/L: http://m.live.sports.media.daum.net/video/kbo/240071/243025
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/240071/242893
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/240071/242977
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/240071/243026
+- [MVP] 승리에 절대적인 역할 '비룡 사냥꾼' 장민재
+  - http://m.live.sports.media.daum.net/video/kbo/240071/243061
+- [라인업] SK vs 한화, 9월 10일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242843
+- SK에 강한 장민재, 세 타자로 이닝 정리 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242840
+- MLB 스카우트 대전에 운집, 김광현 삼자범퇴 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242846
+- 하주석 실책, 더블 플레이로 마무리한 장민재 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242851
+- 김광현에 강한 장운호, 선취 2타점 적시타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242862
+- 허도환, SK 주자 연속으로 잡아낸 강력한 송구 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/240071/243021
+- 장민재 도와주는 SK, 이명기 도루 실패 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242872
+- 최정 치명적인 실책, 득점하는 정근우-이용규 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242880
+- '잊고 싶은 날' 김광현, 장운호 삼진 잡고 강판 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242919
+- 장민석 적시타, 바뀐 투수 상대로 점수 차 벌리는 허도환 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242898
+- 최정 파울 타구 관련 합의 판정 신청 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242908
+- 만루 찬스 살리는 하주석, 2타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242923
+- 허도환 밀어내기 타점, 아찔하게 이닝 종료시킨 이명기 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242929
+- 병살타 유도로 효율적인 투구하는 장민재 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242956
+- '선발 전원 안타 달성' 김태균 쐐기 투런포 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242942
+- 비룡 타선 잠재운 장민재 무실점 피칭 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242981
+- '시즌 6호' 이성열 솔로포, 개인 통산 100홈런 달성 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242967
+- 장민재 최고의 피칭, 기립 박수받으며 교체 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242995
+- 제대로 터진 타선, 적시타 때리는 하주석 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/240071/242998
+- 정범모 시즌 첫 출전, 서캠프 2K 삼자범퇴 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/240071/243009
+- 김용주 삼구삼진 두 개 포함 완벽투로 경기 종료 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/240071/243035
+- 연승 이어가는 한화, 김성근 감독-선수단 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/240071/243042
+
+### 2016-09-11 [한화 7-6 SK] [H/L] '김회성 역전 만루포' 한화, SK 울리고 4연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/240080/243436
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/240080/243335
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/240080/243383
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/240080/243438
+- [MVP] 김회성이 쏘아올린 가을야구 희망, 생애 첫 역전 만루포
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243466
+- [인터뷰] 장민재 '가을 야구가 하고 싶어요'
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243283
+- '키즈 데이' 송진우 어린이 시구, 임하연 어린이 시타
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243286
+- [라인업] SK vs 한화, 9월 11일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243296
+- 내야 안타와 실책으로 실점한 카스티요, 삼진으로 이닝 종료 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243291
+- 최정, 이용규 잡아낸 재빠른 송구 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243306
+- '캡틴 파워' 정근우, 켈리 상대로 동점 홈런 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243300
+- 송광민 실책, 역전 득점 성공하는 김강민 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243309
+- 박승욱 좋은 핸들링 보여준 강습 타구 처리 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243313
+- 탈삼진 2개, 순식간에 이닝 종료시키는 켈리 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243316
+- '가을입니다' 박정권 투런포 폭발 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243322
+- 카스티요 강판, 실점 후 만루 위기 막아낸 서캠프 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243334
+- 이용규, 파울 타구에 맞아 경기 도중 교체 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243341
+- 켈리 강력한 구위로 2K 삼자범퇴 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243348
+- 대타 양성우, 행운의 1타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243355
+- 고통스러운 하주석, 만루 찬스 만드는 안타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243358
+- 박정권, 손끝 감각으로 만든 호수비 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243364
+- '배트 보이, 생유' 김회성 역전 그랜드슬램 폭발 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243361
+- 두 번의 대타 카드, 결과는 역전 그랜드슬램 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243386
+- 심수창 등판, 1K 삼자범퇴 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243373
+- 김재현 펜스와 부딪치며 잡아낸 점프 캐치 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243376
+- 위기의 심수창, 병살타로 이닝 마무리 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243391
+- 정근우 점수 차 벌리는 소중한 적시타 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243399
+- 정우람 한 번에 더블아웃 만든 호수비 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243404
+- 박정진 대신 정우람, SK 타선 틀어막는 호투 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243414
+- 최정 장외 솔로포, SK 한 시즌 팀 최다 홈런 신기록 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243423
+- 홈런 허용한 윤규진, 살얼음 승부 이겨내며 경기 종료 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243434
+
+### 2016-09-13 [한화 7-6 삼성] [H/L] '로사리오 결승타' 한화 연장 접전 끝 삼성 잡고 5연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/242142/244031
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/242142/243951
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/242142/243953
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/242142/244033
+- 10~12: http://m.live.sports.media.daum.net/video/kbo/242142/244035
+- [MVP] '복덩이' 로사리오 역전 결승타
+  - http://m.live.sports.media.daum.net/video/kbo/242142/244034
+- '미스코리아 쌍둥이 자매' 김민정, 김나경 시구-시타
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243835
+- [라인업] 한화 vs 삼성, 9월 13일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243839
+- 김상수, 플란데에게 삼자범퇴 선물하는 좋은 수비 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243874
+- '통산 1,400타점 달성' 최초의 사나이 이승엽 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243853
+- 플란데 상대 공격 가볍게 막아내는 3K 호투 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243862
+- 양성우 칼송구, 합의 판정 요청하는 구자욱 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243881
+- 플란데, 한화 타선 제압하는 2K 삼자범퇴 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243885
+- 밀어내기 볼넷으로 동점 만드는 한화 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243905
+- '보나 마나 세이프' 박해민 2년 연속 50도루 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243943
+- 박한이-최형우의 활약으로 리드 되찾는 삼성 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243917
+- 이태양 팀 사기 북돋는 깔끔한 삼자범퇴 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243934
+- 삼성, 팀 통산 25,000탈삼진 달성하는 김대우 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243945
+- 과감한 선택으로 김상수 잡아내는 허도환 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243964
+- 로사리오, 서캠프 짐 덜어주는 착한 수비 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243968
+- 정근우 경력에서 나오는 안정적인 수비 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/242142/244012
+- '697일의 기다림' 이양기 역전 3타점 적시타 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/242142/243979
+- 최선호 합의 판정 끝에 득점, 연장전 돌입 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/242142/244009
+- 승리까지 한 이닝, 뒷심 보여주는 한화 / 12회초
+  - http://m.live.sports.media.daum.net/video/kbo/242142/244027
+- 이흥련 희망이 보이는 귀중한 투런 홈런 / 12회말
+  - http://m.live.sports.media.daum.net/video/kbo/242142/244029
+- [인터뷰] '팀의 승리에 보탬이 되고싶다' 로사리오
+  - http://m.live.sports.media.daum.net/video/kbo/242142/244030
+
+### 2016-09-15 [한화 7-6 롯데] [H/L] '송광민 결승타' 한화, 롯데 꺾고 홈 6연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/242153/244626
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/242153/244526
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/242153/244569
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/242153/244624
+- [MVP] '전력질주의 이유' 송광민 투혼으로 만든 역전
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244631
+- '추석맞이' 카스티요 두 아들 세바스티안 시구-크리스티안 시타
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244450
+- [라인업] 롯데 vs 한화, 9월 15일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244460
+- 황재균-강민호 연속 적시타로 선취 2득점 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244457
+- '송은범이 뛰어갔지만..' 포스 플레이 합의 판정 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244463
+- 송은범 만루 위기 탈출하는 병살 처리 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244465
+- 정근우, KBO리그 역대 27번째 통산 1,500안타 달성 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244472
+- 송광민, 정근우 불러들이며 한 점 만회 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244476
+- 황재균 추가 실점 막는 슈퍼 캐치 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244479
+- 중심 타선 같은 하위 타선, 허도환 동점 2루타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244486
+- 전준우 나이스 플레이, 십년감수한 정근우 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244494
+- '이글스 한 시즌 최다 타점 타이' 김태균 밀어내기로 역전 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244502
+- 송은범, 유격수 같은 러닝 스로우 송구 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244516
+- 박종윤 동점 적시타 후 어이없는 주루 플레이 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244514
+- '허슬' 하주석 합의 판정 끝에 적시타 성공 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244529
+- 송광민, 박진형 강판시키는 2타점 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244533
+- 허도환, 전준우 잡아내는 강력한 송구 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244542
+- '도루 저지는 도루 저지로' 양성우 잡아낸 김사훈 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244544
+- 교체 투입된 장운호, 안타 지우는 캐치 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244547
+- '이글 아이' 놀라운 수비 능력 보여준 정근우 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244553
+- 초구에 정색한 정근우, 허망한 포수 땅볼 아웃 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244556
+- 정근우 아쉬운 수비, 한 점차로 추격하는 신본기-김사훈 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244561
+- 심수창 무사 만루 위기, 추가 실점 없이 탈출 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244573
+- 윤규진 등판, 김사훈 삼진 잡아내며 이닝 종료 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244584
+- 손아섭, 정우람 상대로 동점 적시타 작렬 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244593
+- 불편해 보이는 정우람, 대타 최준석 범타 처리 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244614
+- 송광민 투혼의 전력질주, 롯데 합의 판정 신청 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244619
+- 정근우, 정말 중요한 순간에 나온 슈퍼 캐치 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244622
+- 9회에 나타난 진짜 정우람 KK 경기 마무리 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244627
+
+### 2016-09-24 [한화 12-7 LG] [H/L] '6회 7점 폭발' 한화, LG 꺾고 5연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/243710/247294
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/243710/247155
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/243710/247221
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/243710/247296
+- [MVP] 벤치에서 시작한 장운호, 난적 승리 이끈 맹타
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247292
+- '투톤은 안됩니다' 팔찌 가리는 이태양
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247150
+- '김멱살' 오지환과 장난치는 김태균
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247146
+- [라인업] 한화 vs LG, 9월 24일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247136
+- 2루타 출루한 하주석, 아쉬운 주루사 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247126
+- 이양기, 류제국 상대로 소중한 선취 적시타 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247129
+- 잠실에 뜬 이태양 깔끔한 KK 삼자범퇴 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247139
+- 1회와는 다른 류제국, 1K 삼자범퇴 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247143
+- 손주인 뼈아픈 실책, 실점 막는 류제국 피칭 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247152
+- 컨디션 좋은 이태양, 8구만에 삼자범퇴 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247157
+- '1회가 아쉽네' 호투 이어가는 캡틴 류제국 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247158
+- '이태양 vs 박용택' 11구 치열한 승부 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247167
+- 신성현 몸에 맞는 볼, 류제국 빠른 사과 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247170
+- 장운호, 한 점 더 달아나는 1타점 적시타 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247174
+- 선발 이태양 힘들게 하는 이양기-하주석 수비 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247177
+- 김용의, 이태양 상대로 추격의 적시타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247181
+- '만루 찬스' 박용택 역전 2타점 적시타 폭발 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247184
+- 마음 급했던 정주현 아쉬운 수비 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247193
+- 신스틸러 박준혁 강렬한 데뷔 첫 역전 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247198
+- 장운호-정근우 연속 적시타, 우규민 강판 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247204
+- 2타점 적시타로 빅이닝 완성한 4번 타자 김태균 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247208
+- 이양기 위험천만한 스윙, 이닝 끝내는 정주현 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247216
+- 정성훈, 하주석 옆으로 날린 1타점 적시타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247220
+- 어려운 라인 타구 처리하는 양석환 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247224
+- '진짜 맞았는데요' 억울했던 신성현, 안타 출루 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247229
+- 만루에 몰린 임찬규, 폭투로 아쉬운 실점 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247234
+- 이형종 몸을 날렸지만 합의 판정 끝에 태그아웃 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247244
+- 잠실에 울리는 최강한화, 승부 쐐기 박는 이양기-양성우 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247248
+- '포기는 없다' 안익훈, 장민재 강판시키는 적시타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247264
+- 이형종 행운의 2타점 2루타, 정근우 아찔한 충돌 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247267
+- 히메네스 맨손으로 만든 상상초월 호수비 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247271
+- 박정진 연패를 끊는 위력투로 경기 종료 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247290
+
+### 2016-09-27 [한화 9-8 두산] [H/L] '오선진 끝내기 안타' 한화, 두산에 9회말 2사 후 대역전극
+- H/L: http://m.live.sports.media.daum.net/video/kbo/246667/248160
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/246667/248073
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/246667/248106
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/246667/248157
+- [MVP] 드라마 같은 끝내기 안타 오선진
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248167
+- [라인업] 두산 v 한화, 9월 27일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248031
+- 카스티요 세 타자 모두 뜬공으로 처리한 출발 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248028
+- 니퍼트 수비 도움 받으며 삼자범퇴 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248039
+- 이원석 선취점 뽑아내는 시원한 스리런 홈런 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248037
+- 최주환 한 점 더 추가하는 1타점 희생플라이 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248041
+- 김회성 추격 시작하는 1타점 희생플라이 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248061
+- '갈팡질팡' 양의지 남보다 빠른 도루 스타트 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248066
+- 정근우 호수비, 돌아오지 못한 양의지 결국 더블아웃 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248067
+- 이성열 번복된 판정, 병살타는 면한 전력질주 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248078
+- 허도환 턱 밑까지 추격하는 2타점 적시타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248082
+- 오재원 출루 후 마운드를 흔드는 주루플레이 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248096
+- 합의 판정 거부당한 김재호, 적시타로 만족 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248099
+- 이성열 추격의 불씨를 살리는 솔로 홈런 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248105
+- '홈런에는 홈런으로 응수' 양의지 솔로 홈런 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248110
+- 삼진 판정을 인정할 수 없는 정근우 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248137
+- 박건우-오재일 격차 벌리는 2득점 합작 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248124
+- 김태균, 박준혁 불러들이는 1타점 적시타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248126
+- 정수빈, 홍상삼도 아쉬워한 뜬공 처리 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248170
+- 홍상삼 한 점 허용하는 밀어내기 볼넷 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248147
+- '아직 모른다' 김태균 볼넷 골라내며 한 점 더 추가 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248149
+- 오선진, 두산 대기록을 깨는 끝내기 안타 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248153
+
+### 2016-09-30 [한화 7-1 NC] [H/L] '이태양 4승' 한화, NC 꺾고 트래직 넘버 1 유지
+- H/L: http://m.live.sports.media.daum.net/video/kbo/246677/249135
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/246677/249078
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/246677/249106
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/246677/249132
+- [MVP] 타격, 수비  맹활약 이성열
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249136
+- '더그아웃에서 등치기?' 목이 유연한 박석민
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249119
+- NC의 새로운 야구장 조감도
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249076
+- [라인업] 한화 vs NC, 9월 30일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249048
+- 하주석 득점, 이상호 빛 바랜 좋은 수비 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249043
+- 정근우 이닝을 끝낼 수 있는 순간, 아쉬운 수비 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249046
+- '인필드 플라이?' 보기 드문 상황 이호준 타석 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249054
+- '엄청난 파워' 이성열 솔로 홈런 작렬 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249055
+- 정근우 격차 벌리는 2타점 적시타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249059
+- 이종욱 후속 동작까지 완벽했던 호수비 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249062
+- 이성열, 권희동 저격한 환상적인 송구 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249070
+- 조영훈 출루 허용하는 포구 실책 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249072
+- 나성범 포수를 지나친 엄청난 송구 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249086
+- 김태균-이양기-이성열 달아나는 3득점 합작 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249082
+- '들어와' 양성우 실책에 장운호와 교체 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249088
+- 이양기-장운호 수비 중 충돌로 고통 호소 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249093
+- 이태양 무사 만루, 연속 뜬공으로 위기 탈출 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249096
+- 이성열, 이태양 돕는 슬라이딩캐치 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249098
+- 오선진 더블플레이로 만족해야만 한 수비 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249104
+- 이재율 안타를 지우는 기가 막힌 다이빙캐치 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249110
+- 박정진 KKK 세 타자 연속 삼진 잡는 위력투 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249114
+- 조영훈 한 점 만회하는 1타점 적시타 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249124
+- '나 괜찮아' 박석민 아찔한 몸에 맞는 볼 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249126
+
+### 2016-10-03 [한화 13-5 두산] [H/L] '김태균·정근우 7타점 합작' 한화, 두산에 완승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/248621/250276
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/248621/250182
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/248621/250228
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/248621/250272
+- [MVP] 유종의 미 원하는 김태균 '300출루 신기록-4안타 맹타'
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250286
+- '두산 정규 시즌 우승 자축' 김규리, 귀여운 시구
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250156
+- 김태형 감독과 김재호가 전달하는 '2016 KBO리그 우승 트로피'
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250173
+- [라인업] 한화 vs 두산, 10월 3일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250163
+- 김태균 적시타, KBO리그 사상 첫 300출루 달성 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250161
+- 강속구에 쓰러지는 오재원, 최주환과 바로 교체 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250167
+- 정근우 적시타, 양성우 희생플라이로 점수 추가한 한화 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250172
+- 카스티요 승리 향한 역투 1K 삼자범퇴 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250176
+- 안규영 내리고 고봉재, 실점 위기 탈출하는 두산 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250180
+- 하주석 엄청난 운동 능력으로 만든 연속 수비 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250185
+- 3득점 추가, 격차 벌리는 송광민-김태균-이성열 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250190
+- '발에 맞아서 괜찮아요' 타구 맞고도 송구 연결한 카스티요 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250196
+- '투아웃 베어스' 무섭게 추격하는 국해성-허경민 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250205
+- 정근우 2타점 3루타 작렬, 득점까지 성공 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250211
+- '시즌 22호' 김태균 잠실 가르는 투런포 폭발 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250213
+- 카스티요 호투 이끈 하주석 환상 호수비 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250218
+- 허도환 적시타, 한화 선발 전원 안타 달성 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250225
+- 이성열 1타점 적시타, 이양기 병살타로 이닝 종료 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250235
+- 좋은 콜 플레이로 타구 처리하는 정근우-이성열 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250239
+- 심수창 등판, 한 점 만회하는 최주환의 적시타 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250242
+- 에반스, 심수창 고개 떨구게 한 괴력의 솔로포 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250256
+- 무사 1-3루 위기, 삼진과 병살로 막아낸 박성민 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250265
+- 정우람 범타 유도하며 깔끔한 경기 마무리 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250270
+- '대승 피날레' 하이파이브 하는 김성근 감독과 선수단
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250278
+
+### 2016-10-05 [한화 7-2 KT] [H/L] '선발 전원 안타' 한화, kt 홈 최종전에 찬물
+- H/L: http://m.live.sports.media.daum.net/video/kbo/248626/250706
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/248626/250620
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/248626/250651
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/248626/250707
+- [MVP] 후회 남기지 않으려 했던 이태양, 시즌 5승 수확
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250711
+- kt 신인 선수 소개 '2017 시즌을 기대해 주세요'
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250585
+- 우주소녀 성소 '공중 360도' 놀라운 시구
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250583
+- 허도환 장갑 껴보는 한화의 재연배우 이성열
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250605
+- 응원석에 등장한 우주소녀, 무전으로 주의 주는 구심
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250637
+- [라인업] 한화 vs kt, 10월 5일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250594
+- 김연훈 어려운 바운드 처리하는 호수비 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250608
+- 이성열-이양기, 선취 2득점 올리는 연속 적시타 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250590
+- 이진영, 펜스 상단 때리는 1타점 2루타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250598
+- 무사 1-2루 위기, 이대형 병살 유도하는 이태양 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250612
+- 김진욱 해설에 바로 응답한 이성열, 솔로포 작렬 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250616
+- 상대 중심 타선 범타 처리하는 이태양 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250622
+- 허도환 희생 번트 성공, 양성우 주자 싹쓸이 2루타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250626
+- 탈삼진과 병살로 실점 위기 틀어막는 이태양 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250632
+- 심재민 등판, 모든 아웃 카운트 삼진 처리 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250635
+- 유민상, 이태양 상대로 추격의 솔로포 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250641
+- 이태양 만루 위기에서 추가 실점 없이 이닝 종료 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250647
+- 피어밴드 첫 불펜 나들이, KK 완벽투 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250654
+- 송은범 등판, 단 공 4개로 이닝 정리 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250657
+- 김태균 솔로포, 역대 최연소 3,000루타 달성 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250662
+- '마스크가 눈을 가렸는데?' 허도환 감각적인 송구 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250670
+- 송광민 적시타, 한화 2경기 연속 선발 전원 안타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250676
+- 삼진으로 실점 위기 벗어나는 피어밴드-김재윤 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250694
+- '유종의 미' 서캠프 실점 없이 경기 마무리 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250704
+- kt와 시즌 마지막 대결에서 웃은 한화, 김성근 감독 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250708
+
+### 2016-10-08 [한화 6-5 KIA] [H/L] '정근우 10회 끝내기' 한화 , KIA 꺾고 7위 피날레
+- H/L: http://m.live.sports.media.daum.net/video/kbo/248638/251689
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/248638/251606
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/248638/251649
+- 7~10: http://m.live.sports.media.daum.net/video/kbo/248638/251691
+- [MVP] 시즌 최종전 끝내기 승리로 팬들 위로한 캡틴 정근우
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251694
+- 대전 시민 천문대 어린이 합창단, 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251571
+- 1차 지명 신인 투수 김병현, 한화 승리 기원 시구
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251568
+- '회수 완료' 김주찬 프로 데뷔 첫 100타점 홈런볼
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251595
+- 김태균 '한 시즌 300출루-최연소 3,000루타' 시상식
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251639
+- 성적과 비례하지 않는 이글스 파크의 응원 열정
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251660
+- [라인업] KIA vs 한화, 10월 8일 경기
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251581
+- 잔루는 1-2루, 실점 위기 탈출하는 장민재 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251576
+- 정근우 안타 훔치는 김주형의 좋은 수비 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251579
+- 대타 김주찬 스리런포, 데뷔 첫 100타점 돌파 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251587
+- '군인과 경찰' 아찔하게 병살 완성한 김선빈-안치홍 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251589
+- 김주형, 장민재 강판시키는 시즌 19호 홈런 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251593
+- 잔루는 1-3루, 실점 허용하지 않는 박준표 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251611
+- 노수광 안타 출루, 빠른 발로 득점까지 성공 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251616
+- 김태균, KBO리그 역대 3번째 통산 1,000볼넷 달성 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251638
+- 다이내믹한 KIA 내야진, 박준표 무실점 피칭 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251624
+- 신종길 도루 실패, 위기 탈출하는 서캠프 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251633
+- '아직 수비 호흡이 어색' 조인성 행운의 안타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251641
+- 김윤동 등판, 폭투로 아쉬운 실점 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251645
+- 김윤동 추가 실점 허용하지 않는 KKK / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251653
+- 신종길 옆구리 맞추는 심수창, 대주자 교체 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251656
+- 심수창 깔끔한 삼자범퇴 마무리 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251666
+- 김진우 등판, 땅볼 타구로 한 점 만회하는 하주석 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251671
+- 대타 신성현, 최영필 상대로 1타점 적시타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251673
+- 이글스의 정근우, 추격의 솔로포 작렬 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251679
+- 3루까지 질주하는 김태균, 동점 득점 성공 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251680
+- 9회말 투 아웃, 마리 한화에 취한 열광의 이글스 파크
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251683
+- 승리 원하는 정우람 2K 삼자범퇴 / 10회초
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251692
+- '감동적인 한화의 시즌 종료' 경기 끝내는 정근우 / 10회말
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251686
+- 정근우, 만원 관중에게 선물한 끝내기 승리의 순간
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251690
+- '팬들은 END 아닌 AND' 끝내기로 장식된 2016 한화
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251693

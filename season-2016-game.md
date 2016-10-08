@@ -454,3 +454,149 @@
   - http://m.sports.naver.com/video.nhn?id=227723
 - [MVP] '역적에서 영웅으로' 시련 이겨낸 하주석
   - http://m.live.sports.media.daum.net/video/kbo/229158/234387
+
+### 2016-08-21 [한화 12-6 KT] [H/L] '김태균 만루포' 한화, kt 꺾고 연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/229177/236607
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/229177/236475
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/229177/236554
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/229177/236610
+- [MVP] '4,338일 만의 원정 경기 선발승' 윤규진
+  - http://m.live.sports.media.daum.net/video/kbo/229177/236621
+
+### 2016-08-26 [한화 7-4 NC] [H/L] '김태균 3타점' 한화, NC 꺾고 7위 도약
+- H/L: http://m.live.sports.media.daum.net/video/kbo/234764/238446
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/234764/238353
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/234764/238412
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/234764/238443
+- [MVP] '6K 탈삼진쇼' 한화의 아껴둔 카드 박정진
+  - http://m.live.sports.media.daum.net/video/kbo/234764/238452
+
+### 2016-08-27 [한화 12-4 SK] [H/L] '선발 전원 안타 폭발' 한화, SK 꺾고 2연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/234770/238822
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/234770/238682
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/234770/238739
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/234770/238825
+- [MVP] '내가 비룡 사냥꾼' SK에 강한 장민재
+  - http://m.live.sports.media.daum.net/video/kbo/234770/238885
+
+### 2016-08-28 [한화 9-1 SK] [H/L] '김태균 5타점 폭발' 한화 3연승 질주, SK 3연패
+- H/L: http://m.live.sports.media.daum.net/video/kbo/234781/239217
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/234781/239120
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/234781/239156
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/234781/239216
+- [MVP] 포기하지 않은 김태균, 5타점으로 승리 배달
+  - http://m.live.sports.media.daum.net/video/kbo/234781/239255
+
+### 2016-09-02 [한화 11-6 LG] [H/L] '김태균 투런포' 한화, LG 꺾고 2연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/237640/240539
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/237640/240469
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/237640/240496
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/237640/240538
+- [MVP] 김태균 '후반기 타율 0.424-최다 108타점' 막을 자가 없다
+  - http://m.live.sports.media.daum.net/video/kbo/237640/240550
+
+### 2016-09-03 [한화 13-11 넥센] [H/L] '송광민 결승 투런' 한화, 넥센에 13-11 대역전극
+- H/L: http://m.live.sports.media.daum.net/video/kbo/237646/240961
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/237646/240765
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/237646/240902
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/237646/240955
+- 10~11: http://m.live.sports.media.daum.net/video/kbo/237646/240960
+- [MVP] '가을 야구 포기 안해' 결승 투런포 송광민
+  - http://m.live.sports.media.daum.net/video/kbo/237646/240962
+
+### 2016-09-08 [한화 4-3 KT] [H/L] '송광민 끝내기 안타' 한화, kt에 대역전극
+- H/L: http://m.live.sports.media.daum.net/video/kbo/240064/242385
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/240064/242269
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/240064/242318
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/240064/242386
+- [MVP] '생애 첫 끝내기' 송광민 3연패 끊는 귀중한 한 방
+  - http://m.live.sports.media.daum.net/video/kbo/240064/242389
+
+### 2016-09-09 [한화 2-1 KT] [H/L] '이용규 끝내기' 한화, kt에 이틀 연속 끝내기 승리
+- H/L: http://m.live.sports.media.daum.net/video/kbo/240069/242682
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/240069/242598
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/240069/242642
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/240069/242691
+- [MVP] 7년 만에 기막힌 투구한 송은범 '119구 혼신투'
+  - http://m.live.sports.media.daum.net/video/kbo/240069/242715
+
+### 2016-09-10 [한화 14-0 SK] [H/L] '타선 대폭발' 한화, SK 7연승 저지
+- H/L: http://m.live.sports.media.daum.net/video/kbo/240071/243025
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/240071/242893
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/240071/242977
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/240071/243026
+- [MVP] 승리에 절대적인 역할 '비룡 사냥꾼' 장민재
+  - http://m.live.sports.media.daum.net/video/kbo/240071/243061
+
+### 2016-09-11 [한화 7-6 SK] [H/L] '김회성 역전 만루포' 한화, SK 울리고 4연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/240080/243436
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/240080/243335
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/240080/243383
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/240080/243438
+- [MVP] 김회성이 쏘아올린 가을야구 희망, 생애 첫 역전 만루포
+  - http://m.live.sports.media.daum.net/video/kbo/240080/243466
+
+### 2016-09-13 [한화 7-6 삼성] [H/L] '로사리오 결승타' 한화 연장 접전 끝 삼성 잡고 5연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/242142/244031
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/242142/243951
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/242142/243953
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/242142/244033
+- 10~12: http://m.live.sports.media.daum.net/video/kbo/242142/244035
+- [MVP] '복덩이' 로사리오 역전 결승타
+  - http://m.live.sports.media.daum.net/video/kbo/242142/244034
+
+### 2016-09-15 [한화 7-6 롯데] [H/L] '송광민 결승타' 한화, 롯데 꺾고 홈 6연승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/242153/244626
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/242153/244526
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/242153/244569
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/242153/244624
+- [MVP] '전력질주의 이유' 송광민 투혼으로 만든 역전
+  - http://m.live.sports.media.daum.net/video/kbo/242153/244631
+
+### 2016-09-24 [한화 12-7 LG] [H/L] '6회 7점 폭발' 한화, LG 꺾고 5연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/243710/247294
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/243710/247155
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/243710/247221
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/243710/247296
+- [MVP] 벤치에서 시작한 장운호, 난적 승리 이끈 맹타
+  - http://m.live.sports.media.daum.net/video/kbo/243710/247292
+
+### 2016-09-27 [한화 9-8 두산] [H/L] '오선진 끝내기 안타' 한화, 두산에 9회말 2사 후 대역전극
+- H/L: http://m.live.sports.media.daum.net/video/kbo/246667/248160
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/246667/248073
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/246667/248106
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/246667/248157
+- [MVP] 드라마 같은 끝내기 안타 오선진
+  - http://m.live.sports.media.daum.net/video/kbo/246667/248167
+
+### 2016-09-30 [한화 7-1 NC] [H/L] '이태양 4승' 한화, NC 꺾고 트래직 넘버 1 유지
+- H/L: http://m.live.sports.media.daum.net/video/kbo/246677/249135
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/246677/249078
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/246677/249106
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/246677/249132
+- [MVP] 타격, 수비  맹활약 이성열
+  - http://m.live.sports.media.daum.net/video/kbo/246677/249136
+
+### 2016-10-03 [한화 13-5 두산] [H/L] '김태균·정근우 7타점 합작' 한화, 두산에 완승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/248621/250276
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/248621/250182
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/248621/250228
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/248621/250272
+- [MVP] 유종의 미 원하는 김태균 '300출루 신기록-4안타 맹타'
+  - http://m.live.sports.media.daum.net/video/kbo/248621/250286
+
+### 2016-10-05 [한화 7-2 KT] [H/L] '선발 전원 안타' 한화, kt 홈 최종전에 찬물
+- H/L: http://m.live.sports.media.daum.net/video/kbo/248626/250706
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/248626/250620
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/248626/250651
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/248626/250707
+- [MVP] 후회 남기지 않으려 했던 이태양, 시즌 5승 수확
+  - http://m.live.sports.media.daum.net/video/kbo/248626/250711
+
+### 2016-10-08 [한화 6-5 KIA] [H/L] '정근우 10회 끝내기' 한화 , KIA 꺾고 7위 피날레
+- H/L: http://m.live.sports.media.daum.net/video/kbo/248638/251689
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/248638/251606
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/248638/251649
+- 7~10: http://m.live.sports.media.daum.net/video/kbo/248638/251691
+- [MVP] 시즌 최종전 끝내기 승리로 팬들 위로한 캡틴 정근우
+  - http://m.live.sports.media.daum.net/video/kbo/248638/251694
