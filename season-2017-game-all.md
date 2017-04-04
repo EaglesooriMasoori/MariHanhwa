@@ -60,3 +60,52 @@
 - "고개 숙인 한화 킬러" 유희관 시즌 첫 승 불발
   - http://m.live.sports.media.daum.net/video/kbo/283915/285336
 
+### 2017-04-04 [한화 6-0 NC] "배영수 성공적인 복귀전" 한화의 기분 좋은 승리
+- H/L: http://m.live.sports.media.daum.net/video/kbo/284699/286572
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/284699/286451
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/284699/286471
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/284699/286514
+- Full:
+- H/L: http://m.sports.naver.com/video.nhn?id=290253
+- 정새미나 아나운서, 경기 전 그라운드 리포팅
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286358
+- 권선택-이춘희, 두 시장이 선보이는 시구-시타
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286362
+- 배영수 완벽한 부활을 예고하는 삼자범퇴 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286366
+- 최금강 위기를 넘기는 완벽투 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286380
+- "만루 위기" 신성현-로사리오, 실점을 막아내는 투지 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286391
+- 하주석, 배영수의 박수를 받는 좋은 수비 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286396
+- 손시헌 대량 실점의 빌미를 제공하는 실책 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286408
+- 만루 상황, 로사리오 몸에 맞는 볼로 앞서가는 한화 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286415
+- 김원석 찬스를 놓치지 않는 2타점 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286429
+- "보기만 해도 통증이 느껴지는" 로사리오의 몸에 맞는 볼
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286440
+- 강경학, 최금강을 강판시키는 2타점 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286443
+- 하주석 환상적인 타격감을 선보이는 솔로포 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286463
+- 배영수 실점을 허용하지 않는 배짱 있는 투구 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286467
+- 홈 개막전을 밝히는 불꽃놀이
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286476
+- 이상호, 신성현의 안타를 지워버리는 슈퍼 캐치 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286486
+- 득점권 찬스를 살리지 못하는 한화 타선 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286497
+- "식어버린 방망이" 로사리오의 병살타 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286501
+- 나가고 싶은 의지가 강력한 정근우 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286506
+- 송창식 승리를 자축하는 2K 삼자범퇴 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286517
+- "주황 피의 에이스" 배영수 604일 만에 선발승
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286541
+- [배영수 HL] 현역 최다승 투수의 관록
+  - http://m.live.sports.media.daum.net/video/kbo/284699/286576
