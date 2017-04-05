@@ -65,7 +65,7 @@
 - 1~3: http://m.live.sports.media.daum.net/video/kbo/284699/286451
 - 4~6: http://m.live.sports.media.daum.net/video/kbo/284699/286471
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/284699/286514
-- Full:
+- Full: http://m.sports.naver.com/video.nhn?id=290304
 - H/L: http://m.sports.naver.com/video.nhn?id=290253
 - 정새미나 아나운서, 경기 전 그라운드 리포팅
   - http://m.live.sports.media.daum.net/video/kbo/284699/286358
