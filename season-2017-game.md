@@ -9,3 +9,11 @@
 - 10~11: http://m.live.sports.media.daum.net/video/kbo/283915/285364
 - Full: http://m.sports.naver.com/video.nhn?id=289326
 - H/L: http://m.sports.naver.com/video.nhn?id=289093
+
+### 2017-04-04 [한화 6-0 NC] "배영수 성공적인 복귀전" 한화의 기분 좋은 승리
+- H/L: http://m.live.sports.media.daum.net/video/kbo/284699/286572
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/284699/286451
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/284699/286471
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/284699/286514
+- Full: http://m.sports.naver.com/video.nhn?id=290304
+- H/L: http://m.sports.naver.com/video.nhn?id=290253
