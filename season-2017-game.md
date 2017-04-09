@@ -17,3 +17,11 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/284699/286514
 - Full: http://m.sports.naver.com/video.nhn?id=290304
 - H/L: http://m.sports.naver.com/video.nhn?id=290253
+
+### 2017-04-08 [한화 4-3 KIA] "김태균 결승타" 한화, KIA 꺾고 2연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/284726/288124
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/284726/288041
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/284726/288048
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/284726/288120
+- Full: http://m.sports.naver.com/video.nhn?id=291710
+- H/L: http://m.sports.naver.com/video.nhn?id=291543

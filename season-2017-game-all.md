@@ -109,3 +109,62 @@
   - http://m.live.sports.media.daum.net/video/kbo/284699/286541
 - [배영수 HL] 현역 최다승 투수의 관록
   - http://m.live.sports.media.daum.net/video/kbo/284699/286576
+
+
+### 2017-04-08 [한화 4-3 KIA] "김태균 결승타" 한화, KIA 꺾고 2연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/284726/288124
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/284726/288041
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/284726/288048
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/284726/288120
+- Full: http://m.sports.naver.com/video.nhn?id=291710
+- H/L: http://m.sports.naver.com/video.nhn?id=291543
+- "챔피언스 필드에 웃음 바이러스를" 박나래 유쾌한 시구
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287880
+- 팻딘 시작부터 위력적인 2K 삼자범퇴 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287887
+- 김선빈 "세이프 아닌가요?" 비디오 판독 요청 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287899
+- 송은범 좋은 컨디션 보여주는 삼자범퇴 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287903
+- 최형우와의 대결, 손에서 공이 연속으로 빠지는 송은범 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287911
+- 김주형 가볍게 날아서 잡아내는 호수비 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287914
+- 정근우 살아나는 타격감으로 1타점 적시타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287917
+- 돌아온 안치홍, 역전 만드는 2타점 적시타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287933
+- 김주형, 팻딘의 어깨를 가볍게 하는 좋은 수비 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287937
+- 팻딘 실점 위기 상황, 수비진 도움으로 이닝 마무리 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287949
+- 이 타구에 너도나도 모여든 까닭은? / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287971
+- 김선빈 "실점은 없다" 팻딘 도와주는 민첩한 수비 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287975
+- 버나디나의 공격적인 주루플레이에 깜짝 놀란 하주석 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/284726/287999
+- "우와~" 감탄 자아낼만한 송은범의 호수비 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288002
+- 오늘은 위기를 무사히 넘긴 KIA 불펜진 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288004
+- 김태균, 흔들리는 한승혁 상대로 동점 적시타 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288016
+- 먹는 풍선껌이 아니면 사정없이 밟아버리는 버나디나
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288028
+- "공 하나에 2아웃" 분위기를 가져오는 한화 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288036
+- 김선빈 천금같은 1타점 희생플라이 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288052
+- "드라마 같은 상황" 김태균 역전 2타점 적시타 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288061
+- 장민석 몸을 사리지 않는 그림 같은 호수비/ 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288071
+- "토요 극장" 승자를 예측할 수 없었던 그 치열했던 이닝
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288075
+- 양 팀의 희비가 엇갈릴 뻔했던 나지완의 타구 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288084
+- [김태균 HL] "대역전극의 주인공" 4타수 3안타 3득점
+  - http://m.live.sports.media.daum.net/video/kbo/284726/288133
+
+
