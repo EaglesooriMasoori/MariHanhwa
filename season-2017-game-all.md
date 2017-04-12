@@ -168,3 +168,64 @@
   - http://m.live.sports.media.daum.net/video/kbo/284726/288133
 
 
+### 2017-04-11 [한화 11-8 삼성] 한화, 삼성과 연장 혈투 끝에 11-8 짜릿한 승리
+- H/L: http://m.live.sports.media.daum.net/video/kbo/287177/289442
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/287177/289290
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/287177/289419
+- 7~10: http://m.live.sports.media.daum.net/video/kbo/287177/289437
+- Full: http://m.sports.naver.com/video.nhn?id=292746
+- H/L: http://m.sports.naver.com/video.nhn?id=292721
+- [정근우 HL] "동점타+결승타" 판 뒤집은 해결사
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289447
+- 이적 후 첫 친정 마운드에 오른 배영수 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289195
+- 장원삼, 역대 22번째 1,100탈삼진 달성 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289202
+- 잔루는 1-2루, 찬스 살리지 못하는 김회성 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289207
+- "전설 vs 에이스" 이승엽과 대결하는 배영수 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289212
+- 송광민, 시즌 첫 대포 그랜드슬램으로 장식 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289232
+- "오랜만에 득점권에서 터졌다" 2점 만회하는 박해민-구자욱 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289249
+- 조동찬, 배영수 상대로 추격의 솔로포 작렬 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289270
+- 삼성, KBO 리그 역대 최초 팀 통산 40,000안타 달성 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289274
+- "배영수가 내려가고 송창식이 올라왔네?" 경기 역전시키는 강한울-구자욱 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289286
+- 장원삼, 정근우 잡아낸 날카로운 견제구 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289301
+- 만루에서 나온 송광민의 에러, 삼성 한점 추가 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289306
+- 김헌곤, 송창식 강판시키는 1타점 적시타 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289309
+- 박정진 무사 만루에서 한점만 내주고 이닝 종료 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289315
+- "김성근의 3연속 대타 작전" 신성현 2타점 적시타로 보답 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289328
+- 총력전 펼치는 한화, 턱밑까지 추격하는 하주석 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289348
+- "역대 9번째 1,300탈삼진 달성" 배영수의 허슬 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289358
+- 양성우 내야안타 지운 러프의 빠른 판단 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289363
+- "극한 직업" 파울 타구에 고통스러워하는 이영재 구심 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289381
+- "경기 리셋" 정근우 동점 적시타 작렬 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289387
+- 이승엽 3루타 폭발, 실점 허용하지 않는 윤규진 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289400
+- 심창민 위력적인 KK 삼자범퇴 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289405
+- "연장 갑시다" 윤규진-정우람 깔끔한 이닝 종료 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289416
+- "판 뒤집혔다!" 중요한 순간 역전 본능 선보인 정근우 / 10회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289421
+- "한화 4번 타자" 김태균 더 달아나는 2타점 적시타 / 10회초
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289424
+- "연장 승리, 기쁨 두 배" 경기 마무리하는 정우람 / 10회말
+  - http://m.live.sports.media.daum.net/video/kbo/287177/289431
+
+

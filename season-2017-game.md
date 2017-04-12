@@ -25,3 +25,11 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/284726/288120
 - Full: http://m.sports.naver.com/video.nhn?id=291710
 - H/L: http://m.sports.naver.com/video.nhn?id=291543
+
+### 2017-04-11 [한화 11-8 삼성] 한화, 삼성과 연장 혈투 끝에 11-8 짜릿한 승리
+- H/L: http://m.live.sports.media.daum.net/video/kbo/287177/289442
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/287177/289290
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/287177/289419
+- 7~10: http://m.live.sports.media.daum.net/video/kbo/287177/289437
+- Full: http://m.sports.naver.com/video.nhn?id=292746
+- H/L: http://m.sports.naver.com/video.nhn?id=292721
