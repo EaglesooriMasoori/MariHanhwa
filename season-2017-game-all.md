@@ -229,3 +229,44 @@
   - http://m.live.sports.media.daum.net/video/kbo/287177/289431
 
 
+### 2017-04-12 [한화 5-3 삼성] "오간도 첫 승" 한화, 삼성의 막판 추격 이겨내고 승리
+- H/L: http://m.live.sports.media.daum.net/video/kbo/287178/289782
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/287178/289638
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/287178/289695
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/287178/289783
+- Full: http://m.sports.naver.com/video.nhn?id=293085
+- H/L: http://m.sports.naver.com/video.nhn?id=293024
+- 페트릭 2K 삼자범퇴 잡으며 안정적인 출발 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289590
+- 오간도 압도적인 힘 보여주는 2K 삼자범퇴 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289592
+- "투수전 예고?" 페트릭 여전한 삼자범퇴 행진 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289602
+- 오간도 삼자범퇴, 힘으로 압도하는 피칭 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289612
+- 정근우 어제의 타격감 이어가는 1타점 적시타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289624
+- 송광민-이성열 리드 벌리는 2타점 합작 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289634
+- 송광민 찬스 놓치지 않는 1타점 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289664
+- 신성현-하주석 실점 막아내는 수비 합작 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289668
+- 수비 힘입어 무사 1,2루 막아내는 오간도 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289672
+- "내야는 걱정 마" 하주석 민첩한 호수비 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289681
+- 페트릭 10구로 이닝 끝내는 경제적인 피칭 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289686
+- 김태균 여유를 가져오는 1타점 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289694
+- 이승엽 1타점 내야 땅볼, 정근우 이해하기 힘든 수비 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289709
+- 박근홍 마지막까지 최선 다하는 2K 삼자범퇴 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289722
+- 배영섭 끈질기게 이어간 12구 승부 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289734
+- "2G 연속 홈런" 조동찬 포기하지 않는 투런포 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289736
+- [오간도 HL] "외국인 최고 연봉의 이유" 7이닝 무실점 괴력투
+  - http://m.live.sports.media.daum.net/video/kbo/287178/289788

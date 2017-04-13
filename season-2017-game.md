@@ -33,3 +33,11 @@
 - 7~10: http://m.live.sports.media.daum.net/video/kbo/287177/289437
 - Full: http://m.sports.naver.com/video.nhn?id=292746
 - H/L: http://m.sports.naver.com/video.nhn?id=292721
+
+### 2017-04-12 [한화 5-3 삼성] "오간도 첫 승" 한화, 삼성의 막판 추격 이겨내고 승리
+- H/L: http://m.live.sports.media.daum.net/video/kbo/287178/289782
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/287178/289638
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/287178/289695
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/287178/289783
+- Full: http://m.sports.naver.com/video.nhn?id=293085
+- H/L: http://m.sports.naver.com/video.nhn?id=293024
