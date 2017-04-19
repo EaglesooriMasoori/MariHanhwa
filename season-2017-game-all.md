@@ -270,3 +270,52 @@
   - http://m.live.sports.media.daum.net/video/kbo/287178/289736
 - [오간도 HL] "외국인 최고 연봉의 이유" 7이닝 무실점 괴력투
   - http://m.live.sports.media.daum.net/video/kbo/287178/289788
+
+
+### 2017-04-18 [한화 3-2 LG] "최성훈 끝내기 실책" 한화, LG 꺾고 4연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/290729/292438
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/290729/292460
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/290729/292462
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/290729/292466
+- Full: http://m.sports.naver.com/video.nhn?id=295473
+- H/L: http://m.sports.naver.com/video.nhn?id=295449
+- [인터뷰] "데뷔 후 첫 이적" 최재훈 선수의 심경
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292291
+- 오간도 기선제압하는 1K 삼자범퇴 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292296
+- 김태균 가볍게 날아서 잡아내는 아웃카운트 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292299
+- 양석환, 정근우의 빠른 발을 잡아내는 비디오 판독 요청 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292302
+- 이병규, 히메네스 불러들이는 선취 1타점 적시타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292307
+- 정상호 한점 더 도망가는 1타점 적시타 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292311
+- 이성열 행운이 깃든 추격의 1타점 적시타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292316
+- 이제는 "한화맨" 최재훈의 첫 타석 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292326
+- "히요미" 히메네스의 친화력을 보여주는 대화
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292329
+- "60G 연속 출루" 김태균 대기록 달성하는 안타 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292341
+- 위기의 소사, 수비진 도움받고 이닝 마무리 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292353
+- 오간도, 상대 중심타선 돌려보내는 위력적인 피칭 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292364
+- "경기는 원점" 송광민 동점 만드는 1타점 적시타 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292379
+- 무사 1, 3루의 완벽한 득점 기회를 놓치고 마는 LG / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292399
+- 히메네스의 좋은 수비, 비디오 판독으로 판정 번복 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292410
+- 최재훈, 양석환과 깜짝 놀랐던 충돌 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292418
+- "진루는 없다" 송광민-김태균 데칼코마니 수비 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292428
+- 이성열의 애매했던 타구, 상대 실책으로 경기 종료 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292436
+- [오간도 HL] "오"월에 안 "간"다 "도"미니카로
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292441
+- "이름은 하나인데 별명은 서너 개" 김태균 운수 좋은 날
+  - http://m.live.sports.media.daum.net/video/kbo/290729/292456

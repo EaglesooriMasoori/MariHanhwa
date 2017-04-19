@@ -41,3 +41,11 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/287178/289783
 - Full: http://m.sports.naver.com/video.nhn?id=293085
 - H/L: http://m.sports.naver.com/video.nhn?id=293024
+
+### 2017-04-18 [한화 3-2 LG] "최성훈 끝내기 실책" 한화, LG 꺾고 4연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/290729/292438
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/290729/292460
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/290729/292462
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/290729/292466
+- Full: http://m.sports.naver.com/video.nhn?id=295473
+- H/L: http://m.sports.naver.com/video.nhn?id=295449
