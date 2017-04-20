@@ -319,3 +319,59 @@
   - http://m.live.sports.media.daum.net/video/kbo/290729/292441
 - "이름은 하나인데 별명은 서너 개" 김태균 운수 좋은 날
   - http://m.live.sports.media.daum.net/video/kbo/290729/292456
+
+
+### 2017-04-19 [한화 3-0 LG] "비야누에바 첫 승" 한화, LG 꺾고 위닝시리즈 확보
+- H/L: http://m.live.sports.media.daum.net/video/kbo/290737/292812
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/290737/292720
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/290737/292792
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/290737/292834
+- Full: http://m.sports.naver.com/video.nhn?id=295841
+- H/L: http://m.sports.naver.com/video.nhn?id=295792
+- 진달래 아나운서가 전하는 경기 소식 이모저모
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292657
+- "모든 건 강한 LG 위해서" 김대현 등판 배경 설명하는 양상문 감독
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292658
+- 비야누에바 병살 유도하며 순식간에 이닝 종료 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292661
+- "LG의 승부수" 프로 데뷔 첫 선발 등판한 김대현 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292668
+- 잔루는 2루, 실점 허용하지 않는 비야누에바 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292682
+- "대현, 형만 믿어" 어려운 타구 처리한 히메네스 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292684
+- 아슬 아슬했던 정근우, 조금 당황한 비야누에바 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292688
+- 양성우 2루타 작렬, 기민한 주루로 득점까지 성공 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292705
+- 김대현 삼진으로 이닝 끝내는 놀라운 피칭 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292717
+- 하주석의 놀라운 다이빙에 고마움 표시하는 비야누에바 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292731
+- 병살타-뜬공 유도하며 5이닝 책임지는 김대현 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292736
+- "태균, 괜찮아" 무실점 피칭 이어가는 비야누에바 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292748
+- "위대한 도전" 61G 연속 출루를 달성하는 김태균 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292753
+- 최성훈 만루에 등판, 이성열에게 밀어내기 허용 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292768
+- 최진행을 포수 파울플라이로 처리하는 고우석 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292773
+- 장민석 적시타는 몇 타점? 김태균 홈 접전 비디오 판독 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292779
+- LG 신상 히트 상품 고우석, 위력적인 피칭 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292791
+- "첫 승 주세요" 비야누에바 1K 삼자범퇴 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292799
+- 경기 마친 비야누에바, 화기애애한 더그아웃
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292802
+- 실점 허용하지 않는 정우람, 탈삼진으로 경기 종료 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292809
+- "아 이건 아닌데" 김회성 뼈아픈 실책 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292820
+- "분위기 반전 2연승" 김성근 감독과 선수단 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292826
+- [비야누에바 HL] 8이닝 무실점, 기분 좋게 가져가는 시즌 첫 승
+  - http://m.live.sports.media.daum.net/video/kbo/290737/292829
+

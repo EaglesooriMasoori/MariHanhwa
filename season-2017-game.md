@@ -49,3 +49,11 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/290729/292466
 - Full: http://m.sports.naver.com/video.nhn?id=295473
 - H/L: http://m.sports.naver.com/video.nhn?id=295449
+
+### 2017-04-19 [한화 3-0 LG] "비야누에바 첫 승" 한화, LG 꺾고 위닝시리즈 확보
+- H/L: http://m.live.sports.media.daum.net/video/kbo/290737/292812
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/290737/292720
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/290737/292792
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/290737/292834
+- Full: http://m.sports.naver.com/video.nhn?id=295841
+- H/L: http://m.sports.naver.com/video.nhn?id=295792
