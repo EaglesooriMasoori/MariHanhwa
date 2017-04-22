@@ -57,3 +57,11 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/290737/292834
 - Full: http://m.sports.naver.com/video.nhn?id=295841
 - H/L: http://m.sports.naver.com/video.nhn?id=295792
+
+### 2017-04-21 [한화 7-2 KT] "배영수 통산 130승" 한화, 주말 3연전 기선제압
+- H/L: http://m.live.sports.media.daum.net/video/kbo/290751/293634
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/290751/293674
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/290751/293682
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/290751/293715
+- Full: http://m.sports.naver.com/video.nhn?id=296587
+- H/L: http://m.sports.naver.com/video.nhn?id=296548

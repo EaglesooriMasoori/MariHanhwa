@@ -375,3 +375,51 @@
 - [비야누에바 HL] 8이닝 무실점, 기분 좋게 가져가는 시즌 첫 승
   - http://m.live.sports.media.daum.net/video/kbo/290737/292829
 
+
+### 2017-04-21 [한화 7-2 KT] "배영수 통산 130승" 한화, 주말 3연전 기선제압
+- H/L: http://m.live.sports.media.daum.net/video/kbo/290751/293634
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/290751/293674
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/290751/293682
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/290751/293715
+- Full: http://m.sports.naver.com/video.nhn?id=296587
+- H/L: http://m.sports.naver.com/video.nhn?id=296548
+- "네트 아닌 마운드" 양효진, 승리 기원 시구
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293479
+- 피어밴드 첫 이닝부터 압도적인 피칭 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293483
+- "KBO 역대 최다 연속 경기 출루 타이" 홈런으로 장식하는 김태균 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293496
+- 장성우, 박경수를 불러들이는 동점 적시타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293504
+- 피어밴드, 이전 이닝 피홈런을 만회하는 삼자범퇴 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293514
+- 이대형 역전에 성공하는 깔끔한 적시타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293520
+- 박기혁 베테랑의 면모를 보여주는 빠른 수비 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293536
+- 피어밴드 승리투수 요건을 완성하는 삼자범퇴 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293545
+- 송광민-김태균, 연속 적시타를 터트리며 역전 성공 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293556
+- 배영수 눈 깜짝할 사이에 끝내는 이닝 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293574
+- 추가 득점 기회를 허무하게 날리는 kt / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293587
+- 송광민 부상으로 이어질뻔한 슬라이딩캐치 시도 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293594
+- 실점 위기를 넘기자 손뼉 치며 기뻐하는 배영수 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293599
+- 송광민-김태균, 중심타선의 힘을 보여주는 적시타 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293611
+- 로사리오 부진을 털어버리는 어마어마한 투런포 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293615
+- "먹이를 노리는 맹수" 정근우 그림 같은 수비 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293624
+- 군더더기 없이 경기를 종료시키는 윤규진 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293629
+- "비디오 판독을 원해요 감독님" 배영수, 아쉽지만 다음 기회에 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293635
+- [김태균 HL] "63G 연속 출루 + 통산 300호 홈런" 기록의 사나이
+  - http://m.live.sports.media.daum.net/video/kbo/290751/293660
+
+
