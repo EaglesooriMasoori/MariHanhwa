@@ -17,7 +17,7 @@ def get_json(game_id):
     return result_data
 
 # Daum sports
-game_number = "290751"
+game_number = "290766"
 json = json.loads(get_json(game_number))
 
 conn = sqlite3.connect(':memory:')

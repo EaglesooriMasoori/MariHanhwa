@@ -423,3 +423,55 @@
   - http://m.live.sports.media.daum.net/video/kbo/290751/293660
 
 
+### 2017-04-23 [한화 14-1 KT] "2연속 위닝시리즈" 한화, 화력을 뽐내며 승리
+- H/L: http://m.live.sports.media.daum.net/video/kbo/290766/294728
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/290766/294700
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/290766/294715
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/290766/294735
+- Full: http://m.sports.naver.com/video.nhn?id=297517
+- H/L: http://m.sports.naver.com/video.nhn?id=297451
+- "6이닝 무실점 QS" 오간도 활약상 모음
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294688
+- [하주석 HL] "4안타 4타점" 클린업 못지 않은 활약
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294736
+- 배우 김보미 완벽한 포물선 그린 "반전" 시구
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294457
+- 고영표 첫 이닝부터 깔끔하게 2K 삼자범퇴 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294463
+- 김태균 빠른 발로 만들어낸 역대 최다 65G 연속 출루 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294475
+- 김태균 다리 부상이 우려되는 교체 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294486
+- "두 번 맞네" 최재훈 빠져들게 만드는 투혼 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294496
+- "임무 수행 완료" 희생타로 타점 올리는 송광민 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294509
+- 첫 번째 득점 찬스를 허무하게 날리는 이진영 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294521
+- 최재훈 만점짜리 활약을 선보이는 2타점 적시타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294534
+- 하주석 점수 차를 크게 벌리는 스리런포 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294546
+- "가족들이 보고 있다" 로사리오 담장을 넘겨버리는 솔로포 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294563
+- 최진행 2루타에 대한 비디오 판독을 시도하는 kt / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294585
+- 장민석 찬스를 놓치지 않는 1타점 적시타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294600
+- 강경학 이닝을 종료시키는 날렵한 캐치 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294608
+- 흔들리는 kt 공략에 성공하는 이용규-송광민 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294629
+- "주루의 신" 송광민 명품 슬라이딩으로 한점 추가 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294630
+- 로사리오 분위기를 이어가는 적시타 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294635
+- 하주석 강력한 어깨를 보여주는 송구 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294651
+- 유한준 한점 만회하는 소중한 적시타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294656
+- "아쉬운 사이클링 히트 실패" 하주석 내야 안타로 추가 타점 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/290766/294673
+
+
+

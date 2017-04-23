@@ -65,3 +65,11 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/290751/293715
 - Full: http://m.sports.naver.com/video.nhn?id=296587
 - H/L: http://m.sports.naver.com/video.nhn?id=296548
+
+### 2017-04-23 [한화 14-1 KT] "2연속 위닝시리즈" 한화, 화력을 뽐내며 승리
+- H/L: http://m.live.sports.media.daum.net/video/kbo/290766/294728
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/290766/294700
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/290766/294715
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/290766/294735
+- Full: http://m.sports.naver.com/video.nhn?id=297517
+- H/L: http://m.sports.naver.com/video.nhn?id=297451
