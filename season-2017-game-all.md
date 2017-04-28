@@ -474,4 +474,52 @@
   - http://m.live.sports.media.daum.net/video/kbo/290766/294673
 
 
+### 2017-04-27 [한화 6-1 롯데] "배영수 3승+11안타 폭발" 한화, 롯데 꺾고 스윕 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/293714/296216
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/293714/296250
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/293714/296252
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/293714/296244
+- Full: http://m.sports.naver.com/video.nhn?id=299055
+- H/L: http://m.sports.naver.com/video.nhn?id=299016
+- 경기 전 국민의례, 어린이 합창단의 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296069
+- 잔루는 2루, 연속 탈삼진으로 이닝 끝내는 애디튼 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296085
+- "연결 동작이 아니에요" 배영수 와인드업 지적하는 이순철 해설 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296091
+- 배영수 2루타 허용 후 범타 유도하며 위기탈출 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296095
+- "루키의 실수 하나" 행운의 적시타 날린 정근우, 득점까지 성공 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296098
+- "4번 기용의 이유" 로사리오 1타점 2루타 작렬 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296104
+- "나 진짜 오랜만에 왔는데 지나?" 홈팬 야속하게 만든 최진행 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296107
+- 이용규 불러들이는 송광민의 희생플라이 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296123
+- "2,090일 만에 맞대결" 배영수와 이대호의 정면승부 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296136
+- 김문호 적시타로 통산 500득점 달성하는 최준석 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296142
+- 배영수, 최준석 삼진으로 잡고 이닝 종료 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296154
+- 번즈, 정근우 타구 잡아내는 감각적인 캐치 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296159
+- 한화 5득점, 장민석으로 시작해서 장민석으로 끝난 빅이닝 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296171
+- 이대호 잡아낸 배영수, 임무 완수하고 송창식과 교체 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296173
+- 강동호, 한화 중심 타선 제압한 삼자범퇴 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296182
+- 2이닝 동안 5K 잡아낸 송창식의 괴력 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296196
+- 이용규 몸에 맞는 볼, 사과하는 김유영 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296201
+- 윤규진-정우람 차례대로 등판, 깔끔한 경기 마무리 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296209
+- [배영수 HL] "연패 스토퍼" 빛났던 98구 관록투
+  - http://m.live.sports.media.daum.net/video/kbo/293714/296218
+
+
+
 

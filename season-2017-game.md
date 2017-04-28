@@ -73,3 +73,11 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/290766/294735
 - Full: http://m.sports.naver.com/video.nhn?id=297517
 - H/L: http://m.sports.naver.com/video.nhn?id=297451
+
+### 2017-04-27 [한화 6-1 롯데] "배영수 3승+11안타 폭발" 한화, 롯데 꺾고 스윕 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/293714/296216
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/293714/296250
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/293714/296252
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/293714/296244
+- Full: http://m.sports.naver.com/video.nhn?id=299055
+- H/L: http://m.sports.naver.com/video.nhn?id=299016
