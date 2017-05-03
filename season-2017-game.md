@@ -81,3 +81,19 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/293714/296244
 - Full: http://m.sports.naver.com/video.nhn?id=299055
 - H/L: http://m.sports.naver.com/video.nhn?id=299016
+
+### 2017-05-02 [한화 6-5 SK] "최재훈 결승타" 한화, 대역전극으로 연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/295434/298423
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/295434/298427
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/295434/298433
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/295434/298434
+- Full: http://m.sports.naver.com/video.nhn?id=301109
+- H/L: http://m.sports.naver.com/video.nhn?id=301063
+
+### 2017-05-03 [한화 9-8 SK] "허도환 결승포" 한화, SK에 이틀 연속 한점 차 신승
+- H/L: http://m.live.sports.media.daum.net/video/kbo/295437/298773
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/295437/298800
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/295437/298797
+- 7~10: http://m.live.sports.media.daum.net/video/kbo/295437/298801
+- Full: http://m.sports.naver.com/video.nhn?id=301481
+- H/L: http://m.sports.naver.com/video.nhn?id=301412
