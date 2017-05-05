@@ -633,6 +633,66 @@
   - http://m.live.sports.media.daum.net/video/kbo/295437/298769
 
 
+### 2017-05-05 [한화 13-1 KT] "정근우 만루포+오간도 위력투" 한화, 어린이날 신나는 맹타쇼
+- H/L: http://m.live.sports.media.daum.net/video/kbo/295457/299522
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/295457/299569
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/295457/299570
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/295457/299571
+- Full: http://m.sports.naver.com/video.nhn?id=302077
+- H/L: http://m.sports.naver.com/video.nhn?id=302027
+- 이지수 아나운서가 전하는 경기 소식 (feat. 한화 어린이팬)
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299389
+- 대전 카톨릭 어린이 합창단의 경건한 애국가 제창
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299393
+- 조혜인-황예성 어린이들이 귀여운 시구와 시타
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299394
+- 오간도 "원-투-쓰리" 깔끔한 출발 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299400
+- 견제에 걸린 하주석, 장성우 주루 방해로 구사일생 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299405
+- 양성우 속죄의 선취 1타점 적시타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299418
+- 차일목의 놀라운 기습 번트, 비디오 판정 결과는? / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299422
+- "어린이날 슈퍼스타" 정근우 만루 홈런 대폭발 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299426
+- 김원석 홈 팬들에게 복귀 신고하는 1타점 2루타 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299435
+- 김회성-정근우 연속 적시타로 2점 더 추가 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299445
+- 모넬 좋은 스윙으로 한점 만회하는 적시타 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299453
+- 양성우 2루타 작렬, 득점까지 성공 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299466
+- 정말 어려운 타구 처리하는 심우준 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299470
+- "불붙은 한화 타선" 점수 차 벌리는 하주석-송광민-로사리오 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299480
+- 모넬의 아쉬운 수비, 한점 더 추가하는 한화 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299495
+- 이동훈 잊지 못할 데뷔 첫 안타 신고 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299503
+- 심우준, 송광민 잡아낸 엄청난 수비 실력 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299528
+- 대승 거둔 한화, 김성근 감독과 선수단 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299532
+- [인터뷰] 승장 김성근 감독 "정근우 5타점, 승리 손쉽게 가져갔다"
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299535
+- [인터뷰] 정근우 "아들 말대로 만루포! 소름 돋았다"
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299539
+- 경기 종료시키는 이동걸, 데뷔 첫 세이브 수확 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299543
+- [정근우 HL] 소름 돋는 만루포 포함 5타점 "어린이날 사나이"
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299553
+- "귀여운 어린이들" 한화이글스 파크 경기장 풍경
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299561
+- 맨손으로 파울 타구 캐치한 한화팬
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299562
+- "지킬건 지킵시다" 제4의 외야수와 파울볼 경쟁한 양성우
+  - http://m.live.sports.media.daum.net/video/kbo/295457/299564
+
+
+
 
 
 

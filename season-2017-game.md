@@ -97,3 +97,11 @@
 - 7~10: http://m.live.sports.media.daum.net/video/kbo/295437/298801
 - Full: http://m.sports.naver.com/video.nhn?id=301481
 - H/L: http://m.sports.naver.com/video.nhn?id=301412
+
+### 2017-05-05 [한화 13-1 KT] "정근우 만루포+오간도 위력투" 한화, 어린이날 신나는 맹타쇼
+- H/L: http://m.live.sports.media.daum.net/video/kbo/295457/299522
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/295457/299569
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/295457/299570
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/295457/299571
+- Full: http://m.sports.naver.com/video.nhn?id=302077
+- H/L: http://m.sports.naver.com/video.nhn?id=302027
