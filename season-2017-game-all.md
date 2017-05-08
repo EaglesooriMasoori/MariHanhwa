@@ -692,6 +692,60 @@
   - http://m.live.sports.media.daum.net/video/kbo/295457/299564
 
 
+### 2017-05-06 [한화 5-3 KT] "하주석 연타석 홈런" 짜릿한 역전승을 거둔 한화
+- H/L: http://m.live.sports.media.daum.net/video/kbo/295460/299966
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/295460/299962
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/295460/299972
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/295460/299983
+- Full: http://m.sports.naver.com/video.nhn?id=302511
+- H/L: http://m.sports.naver.com/video.nhn?id=302436
+- 장예인 아나운서, 경기 전 그라운드 리포트
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299772
+- "역대급 제구력" 에이핑크 박초롱의 상큼한 시구
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299777
+- 이태양 아쉬운 제구로 한점 헌납, 김성근 감독의 쓴웃음 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299787
+- 로사리오 실점 위기를 더블플레이로 매듭 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299790
+- 로치 폭포수 커브에 혀를 내두르는 정근우 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299796
+- "드디어" 유한준 시즌 1호 마수걸이 솔로포 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299800
+- 이태양 공 8개로 세 타자 제압 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299818
+- 양성우를 당황시킨 박기혁의 재치 있는 수비 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299825
+- 야구장 인기 스타, 한화 마스코트 "수리"
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299837
+- 박초롱 시구, 느린 영상으로 다시 보기(Feat. 윤규진)
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299839
+- 제구력 잡아가는 이태양, 1K 삼자범퇴 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299843
+- 박경수 1타점 내야 땅볼로 한점 추가 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299857
+- 호투 펼치는 로치 상대로 하주석의 솔로 홈런 / 5회말
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299867
+- 로치 안정적인 피칭, 오늘 경기 첫 삼자범퇴 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299891
+- "날 상대하겠다고?" 모넬 분노 섞인 눈빛 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299906
+- "멀티포" 하주석 경기 균형 맞추는 투런 홈런 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299925
+- "토요 극장 상영 중" 정근우 역전 솔로 홈런 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299929
+- 돌부처같이 단단했던 로치의 표정 변화 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299941
+- 로사리오 한점 더 거드는 1타점 적시타 / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299945
+- 정우람의 압도적인 피칭, 삼진 두 개 솎아내며 경기 끝 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299958
+- [하주석 HL] 절정의 타격감을 보여준 이글스의 미래
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299971
+- "당했던 코스 제대로 공략" 정근우가 영리한 이유
+  - http://m.live.sports.media.daum.net/video/kbo/295460/299997
+
+
+
 
 
 

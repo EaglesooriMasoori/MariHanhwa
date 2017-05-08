@@ -105,3 +105,11 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/295457/299571
 - Full: http://m.sports.naver.com/video.nhn?id=302077
 - H/L: http://m.sports.naver.com/video.nhn?id=302027
+
+### 2017-05-06 [한화 5-3 KT] "하주석 연타석 홈런" 짜릿한 역전승을 거둔 한화
+- H/L: http://m.live.sports.media.daum.net/video/kbo/295460/299966
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/295460/299962
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/295460/299972
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/295460/299983
+- Full: http://m.sports.naver.com/video.nhn?id=302511
+- H/L: http://m.sports.naver.com/video.nhn?id=302436
