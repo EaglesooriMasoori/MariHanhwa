@@ -121,3 +121,20 @@
 - 7~9: http://m.live.sports.media.daum.net/video/kbo/299235/301770
 - Full: http://m.sports.naver.com/video.nhn?id=304141
 - H/L: http://m.sports.naver.com/video.nhn?id=304110
+
+### 2017-05-12 [한화 5-3 LG] "이태양 7G 만에 첫 승" 한화, LG 8연승 제동
+- H/L: http://m.live.sports.media.daum.net/video/kbo/299244/302124
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/299244/302117
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/299244/302111
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/299244/302159
+- Full: http://m.sports.naver.com/video.nhn?id=304591
+- H/L: http://m.sports.naver.com/video.nhn?id=304563
+
+### 2017-05-13 [한화 10-0 LG] "김재영 데뷔 첫 승" 3연승을 이어가는 한화
+- H/L: http://m.live.sports.media.daum.net/video/kbo/299245/302557
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/299245/302493
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/299245/302531
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/299245/302552
+- Full: http://m.sports.naver.com/video.nhn?id=304971
+- H/L: http://m.sports.naver.com/video.nhn?id=304920
+

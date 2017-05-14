@@ -794,6 +794,109 @@
   - http://m.live.sports.media.daum.net/video/kbo/299235/301778
 
 
+### 2017-05-12 [한화 5-3 LG] "이태양 7G 만에 첫 승" 한화, LG 8연승 제동
+- H/L: http://m.live.sports.media.daum.net/video/kbo/299244/302124
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/299244/302117
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/299244/302111
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/299244/302159
+- Full: http://m.sports.naver.com/video.nhn?id=304591
+- H/L: http://m.sports.naver.com/video.nhn?id=304563
+- "나 혼자 시구" 전현무 LG 승리 기원 시구
+  - http://m.live.sports.media.daum.net/video/kbo/299244/301987
+- 김대현 공격적인 투구로 만든 삼자범퇴 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/299244/301992
+- "에어 주석" 안타 지우는 하주석의 캐치 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/299244/301994
+- "오늘도 김출루" 김태균 볼넷으로 67경기 연속 출루 행진 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302000
+- 양성우, 김대현 상대로 선취점 만드는 2루타 폭발 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302005
+- 잔루는 2-3루, 김대현 추가 실점 막는 괴력투 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302008
+- 유강남 바로 동점 만드는 적시 2루타 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302018
+- 잠실 마운드 복귀한 허프, 단 공 4개로 이닝 종료 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302020
+- "잠실에 뜬 1박2일" 먹방하는 윤시윤
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302037
+- 이태양 안정감 되찾은 연속 탈삼진 피칭 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302042
+- "무릎에 강타" 정말 고통스러워 보이는 양성우 / 4회초
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302049
+- "실책은 눈물의 씨앗" 오지환 어이없는 송구 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302062
+- "득점? 아웃?" 정말 길었던 로사리오 홈 승부 비디오 판독 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302064
+- "송구 하나가 바꾼 승부" 로사리오 득점과 만루 찬스 살린 김원석 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302069
+- 이태양 내리고 송창식, 투수 교체 제대로 적중 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302079
+- "파울 타구 캐치" 예쁜 딸 앞에서 멋진 아빠의 모습
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302089
+- 박용택의 땅볼 타구로 한점 만회하는데 그친 LG / 7회말
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302098
+- 대타 정성훈, 정우람 상대로 천금같은 적시타 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302107
+- 하주석 불러들이는 송광민 1타점 2루타 / 9회초
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302114
+- "연승 행진 이어가야죠" 경기 끝내는 정우람 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302123
+- "독수리 같은 타구 캐치" 정우람 이닝 종료 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302154
+- [이태양 HL] "살아난 태양" 이제야 찾은 한화 4선발
+  - http://m.live.sports.media.daum.net/video/kbo/299244/302158
+
+
+### 2017-05-13 [한화 10-0 LG] "김재영 데뷔 첫 승" 3연승을 이어가는 한화
+- H/L: http://m.live.sports.media.daum.net/video/kbo/299245/302557
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/299245/302493
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/299245/302531
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/299245/302552
+- Full: http://m.sports.naver.com/video.nhn?id=304971
+- H/L: http://m.sports.naver.com/video.nhn?id=304920
+- [인터뷰] 부임 3주년을 맞이한 양상문 감독
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302376
+- 현주엽 감독, 덩치만큼이나 묵직함이 느껴지는 시구
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302378
+- 기선제압에 성공하는 한화, 송광민 1타점 적시타 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302383
+- "오늘도 출루 신고" 한점 더 보태는 김태균 / 1회초
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302386
+- "파격 선발" 좋은 시작을 보여주는 김재영 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302401
+- 김재영 단숨에 주자를 잡는 날카로운 견제 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302406
+- 송광민 기회를 놓치지 않는 1타점 적시타 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302411
+- 로사리오 자신의 진가를 보여주는 스리런포 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302415
+- 양석환과의 10구 승부 끝에 이닝 마무리하는 김재영 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302447
+- "통산 900득점 돌파" 김태균 큼지막한 투런포 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302454
+- 송광민, 주자를 불러들이는 적재적소 희생타 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302477
+- 한화 팬들을 설레게 한 하주석의 수비 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302483
+- 김태균 스코어 10점을 채우는 연타석 홈런 / 7회초
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302486
+- 오늘 경기 LG의 네 번째 병살타를 기록하는 임훈 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302503
+- 실점 위기를 스스로 극복해내는 신정락 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302519
+- 첫 등판한 김범수, 깔끔하게 경기 마무리 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302526
+- [인터뷰] 김재영 피칭에 만족감을 드러내는 김성근 감독
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302533
+- [인터뷰] 김재영 "감독님에게 믿음을 줄 수 있는 투수 되겠다"
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302536
+- 빠른 견제로 단숨에 아웃카운트 추가한 김재영 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302543
+- [김재영 HL] "병살타 4개" 위기관리로 만든 데뷔 첫 승
+  - http://m.live.sports.media.daum.net/video/kbo/299245/302563
+
+
+
 
 
 
