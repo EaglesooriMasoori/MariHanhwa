@@ -896,6 +896,50 @@
   - http://m.live.sports.media.daum.net/video/kbo/299245/302563
 
 
+### 2017-05-17 [한화 8-4 넥센] "배영수 4승+하주석 3안타" 한화, 넥센전 6연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/301744/304126
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/301744/304156
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/301744/304157
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/301744/304160
+- Full: http://m.sports.naver.com/video.nhn?id=306659
+- H/L: http://m.sports.naver.com/video.nhn?id=306631
+- "빅스" 홍빈과 혁, 넥센 승리 기원 시구 및 시타
+  - http://m.live.sports.media.daum.net/video/kbo/301744/303959
+- 윤석민 기분 좋은 선취 1타점 적시타 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/301744/303968
+- 김민성 찬스 놓치지 않는 적시타 작렬 / 1회말
+  - http://m.live.sports.media.daum.net/video/kbo/301744/303974
+- 최재훈 경기 원점 만드는 2타점 2루타 폭발 / 2회초
+  - http://m.live.sports.media.daum.net/video/kbo/301744/303981
+- "시프트와 호수비의 콜라보" 역대급 수비 선보인 정근우 / 2회말
+  - http://m.live.sports.media.daum.net/video/kbo/301744/303997
+- "71G 연속 출루 신기록 달성" 김태균 역전 적시타 / 3회초
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304005
+- "캐칭 요정" 어려운 송구 잡고도 태연한 로사리오 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304022
+- "한화의 데릭 지터" 시즌 베스트급 수비 성공시킨 하주석 / 3회말
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304027
+- 빠른 발로 2루까지 간 이정후, 동점 득점 성공 / 4회말
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304042
+- 이정후 호수비 氣 받은 신재영, 오늘 경기 첫 삼자범퇴 / 5회초
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304054
+- 역전 3루타 치고 포효하는 하주석, 득점까지 성공 / 6회초
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304060
+- 양성우, 이정후 저지하는 레이저 송구 / 6회말
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304067
+- 김원석 몸에 맞는 볼-송광민 적시타로 3점 추가하는 한화 / 8회초
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304091
+- 불안한 송구로 한점 실점하는 한화, 조기 등판한 정우람 / 8회말
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304103
+- "넥센전 6연패 떨어져라" 정우람 승리 지키며 경기 종료 / 9회말
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304130
+- "넥센포비아 극복?" 김성근 감독과 한화 선수단 하이파이브
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304136
+- [하주석 HL] 한화 팬 마음에 불지른 공수겸장 "킹주석"
+  - http://m.live.sports.media.daum.net/video/kbo/301744/304152
+
+
+
 
 
 

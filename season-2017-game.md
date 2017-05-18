@@ -138,3 +138,10 @@
 - Full: http://m.sports.naver.com/video.nhn?id=304971
 - H/L: http://m.sports.naver.com/video.nhn?id=304920
 
+### 2017-05-17 [한화 8-4 넥센] "배영수 4승+하주석 3안타" 한화, 넥센전 6연패 탈출
+- H/L: http://m.live.sports.media.daum.net/video/kbo/301744/304126
+- 1~3: http://m.live.sports.media.daum.net/video/kbo/301744/304156
+- 4~6: http://m.live.sports.media.daum.net/video/kbo/301744/304157
+- 7~9: http://m.live.sports.media.daum.net/video/kbo/301744/304160
+- Full: http://m.sports.naver.com/video.nhn?id=306659
+- H/L: http://m.sports.naver.com/video.nhn?id=306631
